@@ -8,9 +8,9 @@ if [[ "${TRACE-0}" == "1" ]]; then
 fi
 
 if [[ "${1-}" =~ ^-*h(elp)?$ ]]; then
-    echo 'Usage: ./word_count.sh [file(s)...]
+    echo 'Usage: ./front_matter.sh [file(s)...]
 
-Get word count of given file(s).
+Get front-matter of given file(s) in json format.
 
 '
     exit
@@ -18,10 +18,10 @@ fi
 
 # cd "$(dirname "$0")"
 
-
-main() {
-  sed '1{/^---$/! q;};1,/^---$/d' $1 | wc -w  | grep -o "[0-9]*"
+main () {
+  node -e "console.log(JSON.stringify(require(\"gray-matter\").read(\"$1\")));"
 }
+
 
 for arg in $@
 do
