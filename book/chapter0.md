@@ -124,11 +124,15 @@ monitor was showing something, something Geoff didn't recognize or understand at
 satellite that was throwing the error, but he couldn't know what. He could only see it from one eye, and despite the
 same repeating glitch on Hale's face he couldn't help but tilt his head to get a better look.
 
-It was just code, number and letters, streaming in a tiny window occupying the corner of the screen. Random characters
-blurring past so fast that Geoff couldn't tell if they spelt anything, or had any meaning beyond the randomness they
-portrayed. He went to turn away, to maybe slap some sense into both of them, or to get help, but he stopped. He couldn't
-turn away. His eyes were transfixed on the screen, unable to look away. His skin was starting to crawl. Then it started
-to crackle with static. He could feel power surging through his bones. He felt it all in the span of a second. His mind
-flooded with with light, emptying his thoughts. All of his sense of self drained away. He ceased all emotions and
-thoughts. He made one last strain to look away, to break this stream of power that was surging through him. And then his
-world exploded into only light.
+It was just code. Number and letters streaming in a tiny window occupying the corner of the screen. Random characters
+blurring past so fast that Geoff couldn't tell if they spelt anything, or had some meaning beyond the randomness they
+suggested. He went to turn away, to maybe slap some sense into both of them, or to get help, but he stopped. He couldn't
+turn away. He felt it all in the span of a second. His eyes were transfixed on the screen, unable to look away. His skin
+was starting to crawl with faint pricks of pain. Then it started to crackle with static. He could feel power in his
+body, surging through his bones. It was unlike anything he'd felt before. It felt like he could feel everything. The
+energy of the lights, the heat from his coffee, the very photons dancing across the screen. He felt like he could sea
+and feel the electrons jumping across the gaps between atoms. The infinite space between those imperceptibly small
+shapes started flooding his mind. The vast darkness flooded his mind, emptying his thoughts. All of his sense of self
+drained away. He ceased all emotions and thoughts. Geoff felt like all his being had been collapsed into an
+infinitesimally small point. He made one last strain to look away, to break this stream of power that was surging
+through him. And then his world exploded into light.

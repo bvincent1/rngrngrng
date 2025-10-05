@@ -1,7 +1,7 @@
 ---
 title: Solve for 1
 description: intro Peter, and Kane
-word_count: 2445
+word_count: 2447
 ---
 
 The room was known as the shark tank. It was dark, quiet, and you knew that once you went in you were in danger. It was
@@ -91,42 +91,66 @@ Crack.
 
 Peter didn't wake up all once. Consciousness came back slowly. His head was throbbing, and his wrists were sore from
 rubbing, and from something cutting into them. He faded out again. When he woke up the second time, he felt cold and
-sore in his chest and legs, on top of everything else. He could feel he was at an angle. He'd been strapped by metal
-bonds to some cold, metal surgical bed. His neck, feet, and hands were all secured, and there was strapping bands across
-his chest. Someone had cut open his suit, not to remove it, but simply to attach monitoring plugs to his chest and
-sides. There were lights on him, but not blinding, like interrogation, but just normal lights. He was in a normal
-looking room of concrete and metal with tile floors. There were no shelves, only some carts with equipment on them. He
-didn't see a door, which meant it had to be behind them, but he did see a camera in the corner. It didn't have an
-indicator light, but Peter knew it had to be active and monitoring him. He looked closer at the tools on the metal carts
-and didn't recognize much. There were some probes, and tweezers but most of it seemed to be medical monitoring equipment
-equipment. One of the carts had a machine that read it was for signal monitoring. He recognized the producer from his
-time in the military, but he'd never used this particular model. The ones he had used were for signal jamming or
-monitoring. He was at a loss as to why they'd have something like that here.
+sore. His chest and legs ached with stiffness. He could feel he was laying on his back, at an angle, and with his arms
+at his sides. He'd been strapped by metal bonds to some cold, metal, surgical slab. His neck, feet, and hands were all
+secured with metal clasps, and there were tight straps across his chest. Someone had cut open his expensive black suit,
+and ,he guessed, attached monitors to his chest and sides. He loosened his squint some more. There were lights on him,
+but not blinding, like interrogation lights just normal lights. He was in a clinical looking room of concrete floors and
+tile walls. There were no shelves, only the walls or in the corners that he could see only some wheeled carts with
+equipment on them. He didn't see a door, which meant it had to be behind him, but he did see a camera in the corner. It
+didn't have any indicator lights, but Peter knew it had to be active and monitoring him. He looked closer at the tools
+on the metal carts and didn't recognize much. There were some probes, and tweezers but most of it seemed to be medical
+monitoring equipment equipment. One of the carts had a machine that looked like it was for radio signal monitoring. He
+recognized the shape from his time in the military, but he'd never used this particular model. The ones he had used were
+for signal jamming or monitoring. He was at a loss as to why they'd have something like that here.
 
-The there was a rusty creak from behind him and Peter smelled ozone from the hallway. Someone walked into the room and
-adjusted the probes on his back. They were in surgical uniform, and had a mask on. Whoever they were, he was clearly
-part of some experiment, and they were about to begin. He started struggling, the metal clasps around his wrist
-painfully cutting into him.
+The there was a rusty creak from behind him and Peter smelled ozone from the hallway. He heard rubber shoes on the
+concrete as the new visitor appeared from behind him, door screeching closed behind them. They were in surgical uniform,
+and had a mask on. He couldn't make out any distinguishing feature, or even their gender past the gown, gloves and mask
+that were all clinically worn by this person. He suddenly looked closer at the tools, instantly on edge that he was
+about to be tortured. But he checked again and didn't see anything sharp, heavy, or even menacing looking. He wasn't
+going to be tortured. While that realization helped with the rapid beating in his chest, his blood still ran cold with
+the realization that something potentially worse was about to happen. He was clearly part of some experiment, and this
+person was about to administer it to him. He started struggling, the metal clasps around his wrist cut painfully into
+his already raw skin. The lab tech looked at him once, then continued with their task. His struggles didn't phase them,
+and they knew he'd never get out. The tech checked over the signal receiver, once again, double checked that the
+monitoring wires were attached to the medical device at the base, then turned to him. Clearly they didn't relish this
+part, but he knew what they were about to do. Carefully the technician stepped closer. One foot at a time until they
+could carefully reach into his ragged suit and confirm the leads were still attached to him. He felt their cold gloved
+hands press the contacts into his skin. Going over each, one by one until they'd checked them all.
 
-<!--
-"Don't bother" she said. "You're not going to get out, nobody else has."
+He didn't struggle. It was clear that they planned to keep him alive, otherwise why bother with all this. He'd need his
+strength, and he focused all his willpower into channeling his days in the forces. It had certainly been a while, and
+he'd grown accustomed to better conditions since then, but it was time to embrace the darker side of his life. He'd
+pushed in his past life. Pushed into places he didn't want to be, and didn't have the luxury of complaining about.
 
-She walked around to Peter's view and he saw that she was calm and undisturbed. She'd done this before and was getting tired of it. No more emotion, no more sadness, just work. "What are you doing to me?!" Peter croaked, the first words he'd said since descending that fateful elevator earlier today.
+"Get it over with" he grumbled. The technician didn't react to him. They just finished their task and then walked around
+him to the door. He heard it creak open, and then creak shut. The smell of ozone wafted into the room again, but
+otherwise he was alone. "Making me wait I guess" he said to himself, out of frustration and nervousness. He was nervous
+now. He had to clamp it down. Get control over his fears. He wouldn't give them anything. Not his fears or his
+nervousness. Not an inch.
 
-"We're exposing you to something so we can see the results. You will be the 17th subject today, so please make this quick as I'm very tired." She said, clearly tired of having to explain this over and over. "All I'm doing is making sure you can't rip out our monitors while the experiment is going on. It's unfortunate, but you have to be awake for some reason for it to work. I suppose you also have to struggle to make sure we can record it properly."
+Then he heard a noise from the machine in front of him. For a second he thought it had turned on by itself, but rejected
+that nonsense. It had been remotely activated, and was now going through some diagnostic or whatever machines like this
+did when they were turned on. He heard some screeches and burps come from it, and the speakers that were connected let
+out a faint hum. Whatever it was doing, it had power and it was ready now. It was slow at first. Peter didn't know if
+the volume or the speed had increased, but he could faintly make out noises coming from the speaker. The noises were
+almost imperceptible at first. Just faint hisses, or crackles that almost merged with the low whines of the lights or
+the beating of his heart. He tried to steady himself, tensing against some assault that must be coming. He'd be blasted
+with words or noises any second and then he'd have to block it out. He waited. He waited some more. His breathing was
+regular, and he could feel time ticking away, but there was nothing. He listened closer now, unsure what to expect. The
+noises were just beyond his capabilities. And then they weren't. He heard some clicks, and then a hiss and suddenly he
+could make out the noises. They were random. It was just white noise. There was no meaning to it. He found he no longer
+had to strain to hear it, and he relaxed in his bonds. He looked up at the ceiling, and the dimmed fluorescent lights
+that cast diffused hues of white and yellow across the room.
 
-"What are you doing to me!" Peter yelled this time, desperate to get an answer.
-
-"Honestly I don't know." She shrugged.
-
-Her attitude towards all this was sucking the hope from Peter at an exponential rate.
-
-"I can't really predict what's going to happen, which is why we need so many subjects. Of course that's not really your question. What were doing is exposing you to a signal, and seeing what happens."
-
-"A signal? What kind of signal?" Peter was exasperated. It didn't even sound like he was going to die anymore, but he couldn't believe that whatever would happen was going to be tolerable. The woman had her back to him now, and was checking the signals equipment. Her voice was muffled slightly under her mask, so PEter had to strain to hear it.
-
-"..ot long ago one of our orbital satellites detected a signal. It was faint so we thought nothing of it, but we couldn't determine it's origin, or any embedded message. For a few months we ignored it, until eventually it got stronger. When that happened we were able to pinpoint it's origin, and that was the first thing that shocked us." She turned to face him now, clearly enjoying telling the story. "I'll tell you this since you're clearly different than my other subjects. Most of them just scream and I have to go through everything so quickly."
-
-It was almost like she read his mind with that remark.
-
-She took a breath, clearly about to get to the good part. "We discovered the signal was coming from outer space. It's origin puts it bellow the solar system, somewhere out in the ort cloud. That's not even the strangest part. When we tried to investigate, we killed three analyst's trying to find any meaning buried in the signal. In fact all analysis has resulted in death. At first they just keeled over, done. But recently, as the signal has gotten stronger, we've noticed changes in the method, and the outcomes. Some people have lived longer being exposed to it, and when they do they express some sort of message. And this isn't even from auditory exposure. Even when we digitize it, the signal is still deadly. No matter what we do we can't seem to listen, read, or perform any sort of __research__ into this. The only thing we've isolated so far is time to death, and what the victim manages to say during that time. It's maddeningly __slow__, but we're going to have to make progress some way or another. We have to get to the bottom of this, it could be the discovery of a lifetime. Contact. Contact with something not of our world, and clearly much more advanced than us. It's so exciting." -->
+He felt it. The skin along his spine itched, but starting from the small of his back, all the way to his skull in a
+line. His arms suddenly felt tiny pricks of static, like he was being shocked. He could hear the noise, but it no longer
+felt random. There was something behind it. Something that he could almost hear, but only if he strained. His skin was
+crackling now. He felt sharp jabs in his chest and head. His eyes were burning and he almost shut them but for the need
+to focus. He kept his focus on the noises. He could hear everything now. He could hear the singing of the current, the
+hums of each molecule in the room. Suddenly it was deafening. He found he could see everything as well. The electrons
+scattering across the trapped gasses in the lights, the photons sparking and dancing into being from nothing. It was
+everything hen could do to hold onto his own sense of self. He struggled to feel anything to ground himself. The metal
+table he was lying on felt far away, the shackles lighter than anything he could imagine. He was almost completely gone
+now. Nothing was keeping him here anymore. Then his world collapsed into a single point, and he felt cold.
