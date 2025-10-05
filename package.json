@@ -1,0 +1,11 @@
+{
+  "name": "rng",
+  "version": "1.0.0",
+  "repository": "https://github.com/bvincent1/rngrngrng.git",
+  "author": "Ben Vincent <benjc.vincent@gmail.com>",
+  "license": "MIT",
+  "devDependencies": {
+    "gray-matter": "^4.0.3",
+    "prettier": "^3.6.2"
+  }
+}

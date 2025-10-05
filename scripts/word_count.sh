@@ -23,4 +23,7 @@ main() {
     sed '1{/^---$/! q;};1,/^---$/d' $1 | wc -w  | grep -o "[0-9]*"
 }
 
-main "$@"
+for arg in $@
+do
+  main "$arg"
+done
