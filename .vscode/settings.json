@@ -1,5 +1,8 @@
 {
-    "cSpell.words": [
-        "analystics"
-    ]
+  "cSpell.words": [
+    "analystics",
+    "Geoff"
+],
+  "black.enable": true,
+  "prettier.enable": true
 }
