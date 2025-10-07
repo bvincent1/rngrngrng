@@ -1,8 +1,10 @@
 ---
-title: introduction
+title: logs
 description: the signal
 word_count: 2094
 ---
+
+> UNII Corps log date 2327-05-10-2100-00: No notes
 
 "Geoff, if you have a second, could you come over and take a look at this?"
 
@@ -136,3 +138,13 @@ shapes started flooding his mind. The vast darkness flooded his mind, emptying h
 drained away. He ceased all emotions and thoughts. Geoff felt like all his being had been collapsed into an
 infinitesimally small point. He made one last strain to look away, to break this stream of power that was surging
 through him. And then his world exploded into light.
+
+> UNII Corps log date 2327-05-12-2100-00: Footage was retrieved and reviewed by <> and assigned p0 priority. Employees
+> Geoff McGraves, Hale Ptovich, and Jasper Alenchcov were all found dead on the scene after missing report date(s)
+> 2327-05-10, 2327-05-11. All affected members were moving to site 13, and scheduled for evaluation. Further study into
+> incident is ongoing.
+
+> UNII Corps log date 2327-08-11-2100-00: Followup made by Dr. Ziatovsicsh indicates new vectors into dozens of adjoining
+> fields and has made full reports available to reporting teams. All information regarding the events have been labeled
+> under NTK-0 level clearance and any breaches will be reported directly to HEAD.
+

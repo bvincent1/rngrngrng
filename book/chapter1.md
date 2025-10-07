@@ -1,21 +1,37 @@
 ---
-title: Solve for 1
+title: Empty space
 description: intro Peter, and Kane
 word_count: 2447
 ---
 
+> UNII Corps log date 2327-09-25-09-00: Incident report, immediate summons required for all HEAD-SERVICE members.
+
+"Floor 65", Peter barked.
+
+He didn't have to add any pleasantries because the system didn't acknowledge them, or the tech was so finicky that
+anything beyond the floor number would cause him to have to repeat himself. He hated repeating himself, but he hated it
+even more when other people were present. It was a sign of weakness where he couldn't afford any. The other elevator
+passengers ignored him and stood were they were. He waited until one of the juniors scooted back a few inches and he
+took his place at the front. The door closed silently and the hum of the motors continued as they all ascended. Others
+got out before him, and they all had to awkwardly squeeze around him, but he didn't budge. They hadn't offered any
+**difference** to him, so he was intent on reciprocating their attitude. The steel box, with its steel floors and black
+accents ascended higher until it reached the 65th floor. He saw the last passenger raise her eyebrow slightly when she
+saw him get off, having only just now recognized the floor. He ignored her and confidently strode across the dark grey
+carpeting. He crossed the **entry** and made for the room that made everyone's skin crawl. He had to focus on where he
+was going as the lights were purposefully dimmed here. The official reason had been designed "security", but everyone
+suspected it was to intimidate anyone who visited.
+
 The room was known as the shark tank. It was dark, quiet, and you knew that once you went in you were in danger. It was
-an interior room with glass walls, but the only lights in the whole floor were from data streaming onto wall panels
-surrounding the room, and the single light source positioned above the table. The table was a long rectangular
-conference table, cold metal and sparse seating. Everything, including the people, was cold in here. Peter knew it was
-on purpose, but he still did his best to calm himself for his meeting. You had to be cold to make it to where he had.
-He'd done things to get here. And here was the center of a mega corporation. He was an executive on the acquisitions
-team. His job was not pretty, but he knew it had to be done. The room beckoned, and despite how he felt, he willed
-himself to be the shark in this tank. He took a deep breath, opened the door and took a seat, first to arrive. When the
-door closed behind him it was silent. He could probably hear someone elses heartbeat in here, not just his own. He
-smoothly walked to a chair and took a seat. He did not bring any notes, nor did he have any reports to give. This
-meeting was not about him. He did not know exactly what it was for, but he knew it was not good. Nothing good ever
-happened in the shark tank.
+an interior room with glass walls, with only a single light source positioned above the table at its center. The table
+was a long rectangular conference table, made of cold metal and had sparse seating. Everything, including the people,
+was cold in here. Peter knew it was on purpose, but he still did his best to calm himself for this meeting. You had to
+be cold to make it to where he had. He'd done things to get here. And here was the center of a mega corporation. He was
+an executive on the acquisitions team. His job was not pretty, but he knew it had to be done. The room beckoned, and
+despite how he felt, he willed himself to be the shark in this tank. He took a deep breath, opened the door and took a
+seat, first to arrive. When the door closed behind him it was silent. He could probably hear someone elses heartbeat in
+here, not just his own. He smoothly walked to a chair and took a seat. He did not bring any notes, nor did he have any
+reports to give. This meeting was not about him. He did not know exactly what it was for, but he knew it was not good.
+Nothing good ever happened in the shark tank.
 
 Shortly after he arrived other executives arrived and took their seats. He recognized all of them from various
 departments. There was a mishmash of department heads here from legal, inter-corporate relations, analytics, deep
@@ -154,3 +170,6 @@ scattering across the trapped gasses in the lights, the photons sparking and dan
 everything hen could do to hold onto his own sense of self. He struggled to feel anything to ground himself. The metal
 table he was lying on felt far away, the shackles lighter than anything he could imagine. He was almost completely gone
 now. Nothing was keeping him here anymore. Then his world collapsed into a single point, and he felt cold.
+
+> UNII Corps log date 2327-09-25-023-00: Incident resolved. Redact records, and retract pay through the usual back
+> channels for designated employee #76502309. Contact HR to assign designated stand-in until position can be filled.
