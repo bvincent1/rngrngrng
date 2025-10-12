@@ -57,12 +57,8 @@ on his way over, and small droplets pattered on the glass windows and concrete w
 started towards the address. He walked briskly and with purpose, trying to fend off anyone from trying him just by
 attitude alone. Nowheres in the city was particularly safe, but Arthur found that attitude made up a big part of
 seperating those whom did get into trouble and those whom did not. Despite the violence, weapons were fairly simple. Guns
-were semi-common, but more often attackers would use blunt tools. Arthur himself carried an extendable rod, prefering to
-appear un-armed and attract the least attention. 
+were semi-common, but more often attackers would use blunt tools. Arthur himself carried an extendable rod, prefering
+the low profile approach. Indeed int he military, he'd been well known as an expert scout. His natural sense of stealth,
+combined with his almost perfect sense of direction had set him up for success. He'd have made a great scout had things
+gone differently.
 
-
-
-
-
-
-He'd always been good at navigating, and pretty much never got lost. He found he could always get to where he was going even when he was underground. That skill had come in handy a lot in his life, and it would surely continue to serve him well in his current line of work.
