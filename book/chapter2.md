@@ -25,7 +25,7 @@ didn't fully trust her though.
 He could picture her smiling at him with her mischievous grin. She loved being right. He hated giving her the win.
 "What's the gig?" He said, trying to cut through any ribbing she'd give him.
 
-"It's a simple data retrieval. In and out. No contact, direct delivery. It's practically a cake-walk." She replied,
+"It's a simple info retrieval. In and out. No contact, direct delivery. It's practically a cake-walk." She replied,
 clearly also intent on skipping their usual jabs.
 
 "Send the address, I'll take a look" he said. While he wasn't strictly 'rushed' for money, it worried him that Rikki was
@@ -41,3 +41,28 @@ greatest, but being first and being unprepared was always deadly. He wasn't more
 made good time. He passed people on his left and right, and did his best to ignore all of them. Even though it was
 night, there was always people moving from one place to another. He liked watching them, always wondering what reasons
 people would have to be out and about if they weren't like him.
+
+---
+
+Arthur felt solemn about how things were. He was smart enough to recognize the cycles and to realize that they were on
+the brink of another collapse, but he also felt like he was stuck. He didn' thave the means or the power to change
+anything. He barely had the means to help himself let alone others. Any effort he put into something herioc like
+changing the world wouls surely cost him dearly. He wanted to be a hero, but he couldn't bring himself to sacrifice to
+do it.
+
+His phone dinged again with an update from Rikki. 'Remeber, they just wanna know where the perp went. Don't get
+involved, don't cause a scene'. As if he needed a reminder. He pocketed his phone and waited a few minutes for his stop.
+He got out and ascended from the underground rail, to arrive fairly close to his intended target. It had started raining
+on his way over, and small droplets pattered on the glass windows and concrete walls. He pulled up his collar and
+started towards the address. He walked briskly and with purpose, trying to fend off anyone from trying him just by
+attitude alone. Nowheres in the city was particularly safe, but Arthur found that attitude made up a big part of
+seperating those whom did get into trouble and those whom did not. Despite the violence, weapons were fairly simple. Guns
+were semi-common, but more often attackers would use blunt tools. Arthur himself carried an extendable rod, prefering to
+appear un-armed and attract the least attention. 
+
+
+
+
+
+
+He'd always been good at navigating, and pretty much never got lost. He found he could always get to where he was going even when he was underground. That skill had come in handy a lot in his life, and it would surely continue to serve him well in his current line of work.
