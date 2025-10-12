@@ -34,7 +34,7 @@ jobs:
 
       - name: ⬆️ Commit Formatted Files
         # Action to automatically commit and push any changes made by the previous step
-        uses: stefanbuck/git-auto-commit-action@v5
+        uses: stefanzweifel/git-auto-commit-action@v7
         with:
           # A clear commit message for the auto-formatting
           commit_message: 'Auto-format Markdown files & update word counts'
