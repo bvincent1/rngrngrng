@@ -1,10 +1,9 @@
 name: Format Markdown
 
 on:
-  # This runs the workflow on every push to every branch
   push:
     branches:
-      - '*' # or specify your main branches, like 'main', 'develop'
+      - 'main'
 
 jobs:
   format:
