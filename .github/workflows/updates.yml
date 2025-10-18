@@ -41,4 +41,3 @@ jobs:
           file_pattern: '**/*.md'
           # Use a GitHub Token with write access
           token: ${{ secrets.GITHUB_TOKEN }}
-          # The branch to commit back to is the current branch (implicit)

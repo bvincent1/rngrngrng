@@ -1,6 +1,6 @@
 
 format:
-	@yarn run prettier ./book/*
+	@yarn run prettier -w ./book/*
 .PHONY: format
 
 counts:
