@@ -107,3 +107,79 @@ landing. He took a moment to catch his breath as best he could, but he didn't wa
 alerted someone looking to cause him trouble. He quickly ascended the grated metal steps, carefully testing his weight
 in some of the more corroded sections. Before he knew it he was at the roof. It was painfully obvious he'd made it
 because the rain and wind had picked up and were now battering him from what seemed like both sides.
+
+He huddled on the roof, and slowly scooted towards the front. He pulled his jacket and hood tighter to protect himself
+from the rain and wind. His jacket was an off black color and water resistant, but not water proof. He'd had it altered
+and repaired a few times, extending the bottom hems, adding the hood, and adding snap-button along the front and a few
+key spots in the back. All this careful attention to detail made it his most prized possession. It was silent and easy
+to hide in. Both of which were vital to his profession. Even with all that, he'd still get soaked if he had to stay out
+here much longer.
+
+Once he reached the edge he pulled a monocular from his chest pocket. He carefully pulled it up to his eye, and scanned
+the building across the street. It was dark now, so he could easily tell who was in and who was not based on the lights.
+A careful scan of the 3rd floor told him that only one of the units was active. Their might still be people in the dark
+ones, but at least they'd be slow to stir, or just simply ignore anything in favor of trying to get whatever sleep they
+could. The entire thing was uninspired blocky architecture, and made with the same concrete that every construction
+company used. The rooms themselves all had one unified balcony with divider walls separating each unit's alloted space.
+Their were tarps covering boxes on several of the balconies, and the others had a an odd chair, or were empty. The rain
+was coloring the concrete a darker grey, and combined with the wind was making a decent noise. Arthur relaxed a bit
+since this meant he'd go completely unnoticed. Nothing to see here, just another pill of trash huddled against the
+elements. He tried not to feel to literally about it.
+
+Pulling the monocular away, he leaned forwards and pulled his phone out, careful not to get it wet. Hunched over his
+phone, he dimmed the screen and checked for any replies from Rikki. She had responded with 'the front left'. He pocketed
+his phone and pulled his monocular back up to his face to better examine the target unit. The monocular didn't have
+anything like a camera, night vision, or thermal imaging. Arthur had mostly used it recon, and didn't have the money to
+invest in something like that. He'd once had to take pictures through it via his phone, but that was the most technical
+he'd had to get. He slowly worked the focus and zoom until he could see into the unit via the balcony door and window.
+
+Since it was night he had a better time seeing inside the unit. Through the glass balcony door, he could make out a
+small couch and a desk with a monitor on it. He couldn't see much else through the door, and he couldn't see at all
+through the window, which he assumed was for the bedroom. He scooted across the roof to the other side to try and get a
+better angle, but all he got was glare from an illuminated street sign down the street. it was still empty below him,
+and the rain and wind was making it especially miserable. He could feel the water seeping into his clothes and he tried
+to think of what to do next.
+
+The job was to find this person, and they clearly weren't here. If there was more info Rikki would've told him. He
+needed the cash, and he wouldn't get paid for showing up with nothing. Time to get resourceful. He secured the monocular
+inside his jacket, and tried to figure out his next steps. He looked around and tried to see anything that he could use.
+The building across from him was too tall to try his last trick with the fire escape, he'd have to spend all his time
+climbing down balconies. But something like that might work on one of the neighbors. One of the neighboring building
+looked like it jutted out slightly further than the target. If he could get onto its roof, he could jump off it onto the
+balcony. There was only 1 floor height between the neighbor's roof, and the 3rd floor balcony. But how would he get onto
+that neighboring roof?
+
+He turned to face the neighbor straight on, and squinted to try and see past the rain whipping around. Arthur was one of
+the few people left that didn't need glasses these days, as eyesight had gotten generationally poorer. Despite his above
+average eyesight, he couldn't make out much. He was about to reach for the monocular, when he spotted it. Without
+removing it from his pocket, he checked the time on his phone. Still good. He scuttled towards the edge of the building
+he'd climbed and looked down. It was pitch black between the buildings, and he couldn't see the bottom in that gap. It
+was pretty close between the two, but if he fell, that'd be it for him. Arthur backed up from the edge and squared up to
+his target. He took a few breaths, and wiped his hands on the insides of his jacket to try and dry them off. They felt
+clammy and slick. He'd be pushing his luck with this one. In three steps, he closed the gap and leapt.
+
+Arthur felt weightless in the air, like he'd be able to jump across the whole street if he had tried. His arms were up
+and reaching. He'd angled his approach and used the **balustrade** as a boost to do this. That trick had gained him the
+extra feet he needed to make this work. All too quickly his outstretched hands slapped against the cold plastic of the
+cabling, and he grabbed hold with all his might. He quickly swung his other arm to grab hold as well. He felt his
+shoulder twinge, and he knew he should have stretched before all this.
+
+Now he was hanging, swinging even, on some cabling suspended between the two buildings. He had guessed that the cable
+could take his weight, but it had been a gamble. He hung there, suspended between two buildings, 4 stories up, soaking
+wet, and questioning if the cable would hold his weight the whole time, or would detach part way through his highwire
+act. Good thing the streets were empty, because between the cable twanging tight all of a sudden and the business sign
+backlighting him someone would have surely noticed. He didn't have to worry about looking down, because it took his full
+concentration to grab the cable. Hand over hand, he climbed forwards. He was only about halfway before he found a flaw
+in his plan. The cable he was climbing across, like some playground equipment from his childhood, was sagging. He didn't
+know what exactly it's purpose was, but clearly the installation engineer had not prepared it to support the weight of a
+full grown man. Arthur knew it was too late to back down, so he kipped up and pulled his legs up onto the cable. Taking
+the weight off his arms, left him more strength to focus on his grip. His willpower was strong, and that what mattered.
+He pulled instead of swung now, and did his best to ignore the growing pain in his shoulder and the cold seeping into
+every part of his body. This maneuver had opened him up to the elements on a whole new scale. His jacket was hanging off
+him by the shoulders, and the rain was hammering his face. His hands would go numb soon, and when that happened, he
+would be done for.
+
+Hand over numbing hand, Arthur pulled himself along the cable until he reached the opposite building. He wedged his
+should right up against the concrete and reached up onto the roof. The concrete was even colder than the plastic and he
+struggled to find purchase. Pulling himself overtop the cable, he could now see the roof and use his other hand to drag
+himself over the lip, and onto the flat, graveled roof. He hauled himself into a crouched position
