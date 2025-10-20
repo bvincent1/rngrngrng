@@ -182,4 +182,10 @@ would be done for.
 Hand over numbing hand, Arthur pulled himself along the cable until he reached the opposite building. He wedged his
 should right up against the concrete and reached up onto the roof. The concrete was even colder than the plastic and he
 struggled to find purchase. Pulling himself overtop the cable, he could now see the roof and use his other hand to drag
-himself over the lip, and onto the flat, graveled roof. He hauled himself into a crouched position
+himself over the lip, and onto the flat, graveled roof. He hauled himself into a crouched position on his knees. His
+chest was heaving from the effort and his lungs ached. Gravel clung to his hands and knees and stung him. The cold was
+still their but it had mixed with the warmth of exertion. His lungs stopped aching, and his breathing came under
+control. The rain had soaked him through and he was going to start feeling it again soon, but at that moment he felt
+better than he had in weeks. He stood up on slightly shaky legs and turned around to check if anyone had noticed his
+acrobatic feat. The streets were just as barren as when he'd last checked, and he almost regretted that nobody had been
+witness to his amazing feat. It was for the better.
