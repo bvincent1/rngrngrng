@@ -1,7 +1,6 @@
 ---
-title: logs
+title: archive logs
 description: the signal
-word_count: 2094
 ---
 
 > UNII Corps log date 2327-05-10-2100-00: No notes

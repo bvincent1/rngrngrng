@@ -1,7 +1,6 @@
 ---
 title: Empty space
 description: intro Peter, and Kane
-word_count: 2447
 ---
 
 > UNII Corps log date 2327-09-25-09-00: Incident report, immediate summons required for all HEAD-SERVICE members.

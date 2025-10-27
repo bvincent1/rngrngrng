@@ -1,7 +1,6 @@
 ---
 title: nobody knows anymore
 description: Arthur gets a job, things don't go according to plan
-word_count: 0
 ---
 
 "Ding", he felt a vibration, and heard the chime simultaneously. He fished his phone out of his jacket pocket, and
