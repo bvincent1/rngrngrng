@@ -3,47 +3,58 @@ title: nobody knows anymore
 description: Arthur gets a job, things don't go according to plan
 ---
 
-"Ding", he felt a vibration, and heard the chime simultaneously. He fished his phone out of his jacket pocket, and
-pulled it up to his face to read the notification. It was a request for a call. He tapped the squirming icon, and put
-the phone to his ear.
+"Ding Ding".
 
-"Got your ears on?" A familiar voice asked.
+Arthur heard the chime.
 
-"Always" Arthur responded. He had been waiting for something all week.
+"Ding ding"
 
-"Good, cause this just came in and it's good" The voice was chipper, and excited.
+This time he acknowledged it and reach over for his phone on the sill.
 
-"You say that about all of them." he said, trying to keep any sound of desperation from his voice. He needed this, but
-he didn't want to sound like he needed it. That was always bad, but with Rikki, it was worse. She liked working with
-him, but she also knew she needed to make a profit as well. When he'd made the mistake of telling her about his
-financials, she'd teased him for weeks afterwards. He'd almost given up working with her, but she'd relented. He still
-didn't fully trust her though.
+"You awake?" A chipper female voice asked.
 
-"And you still go through with them, so really shouldn't you just take my side?" Rikki responded.
+"Wasn't asleep." He lied back to her.
 
-He could picture her smiling at him with her mischievous grin. She loved being right. He hated giving her the win.
-"What's the gig?" He said, trying to cut through any ribbing she'd give him.
+"Good, 'cause I have a job for you." She responded, omitting any comments on wether or not she believed him.
 
-"It's a simple info retrieval. In and out. No contact, direct delivery. It's practically a cake-walk." She replied,
-clearly also intent on skipping their usual jabs.
+Arthur sat up quickly, willing himself to be awake. He needed this job, but he didn't want to sound too desperate. He
+had his pride to protect.
 
-"Send the address, I'll take a look" he said. While he wasn't strictly 'rushed' for money, it worried him that Rikki was
-rushed. There could be a million reasons why, and if he asked she'd just lie to him anyways. So he did his best to
-ignore this newest gut feeling, and get this over with.
+"Order just came in. Need you to find someone. Her name is Lili Kant."
 
-"It's on the north side, so get moving" she chirped as pulled the phone away from his face. A second later he got the
-address. He hung up, and tapped the link. Rikki was always nice that way. He watched as the app opened and the route
-loaded onto the map. A line connected between him and the dot where the address was. He studied the map's directions,
-then pocketed his phone, and started walking towards the nearest rail station. He had already known where the station
-was, but it helped to be patient sometimes and double check. He wasn't more than a block away from a station, so he made
-good time. People passed on his left and right, and did his best to ignore all of them, and they did the same to him.
-Even though it was night, there was always people moving from one place to another. He liked watching them, he liked
-imagining what reasons people would have to be out and about if they weren't like him. At the rail entrance he heard an
-announcement for his train, and he stopped to listen. The prerecorded voice announced that the train would arrive
-shortly. He stepped faster than he'd have liked to make it. Steps flew past, and corners blurred as he half walked, half
-jogged to make it in time. He arrived at the **stand** and found he had a minute to spare. He was slightly out of
-breath, and felt his blood pumping from the exertion. He tried to slow his breathing, and get his heartbeat back to a
-relaxed speed. Slow was smooth, smooth was fast. Breathe.
+He nodded his head to no-one in particular, trying to absorb the info into his still half asleep brain. "What does the
+client need?" He asked, hopping that he wasn't making himself look like a fool.
+
+"Just info. Need to know were she is, or were she's going. You're trailing a lead, not bringing anyone in." The female
+voice carefully explained, with a hint of concern in her voice. "I'm sending the location to you now, get there quickly.
+I need this."
+
+She didn't have to say that again. He needed this probably more than she did. Without waiting for him to acknowledge she
+hung up, and he pulled his phone off his face. A second later he got a notification and tapped the link. Rikki was
+always nice that way. Rikki was a dispatcher, and lately he'd been getting most of his work from her. He was vaguely
+aware that she worked from home and that she was mostly a tech specialist who'd doubled into finding work online for
+people like him. He'd yet to meet her in person, but she seemed nice enough the way she talked to him and treated him.
+
+Arthur watched as the app opened and the route loaded onto the map. A line connected between him and the dot where the
+address was. He studied the map's directions, then pocketed his phone. He jumped into his boots on the floor at the edge
+of his bed and reached for his stash of gear. Pocketing most of it, he searched for his jacket and found it in the floor
+were he'd foolishly discarded it. Pulling it over his arms and smoothing the fit, he did one last check of his tiny
+apartment and went to leave. He swung his hallway door open and went for the stairwell. His door was keypad operated so
+h didn't have to wait for it. It also meant that he'd loose access if his funds ran out. He always kept that in mind
+when leaving. He walked briskly down the hall, tails of his longer black jacket sweeping out behind him. He made good
+time down the stairwell and by the time he reached the bottom floor his heart was racing from excitement and from
+exertion. He needed this job, and he was anxious to get it done and catch up on his bills. He pushed the stairwell door
+open and emerged into the early evening air. He started walking towards the nearest rail station. He wasn't more than a
+block away from a station, so he knew he'd make good time.
+
+Emerging from the alley behind his building, people passed on his left and right, and did his best to ignore all of
+them. Even though it was late, there was always people moving from one place to another. Arthur liked watching them, he
+liked imagining what reasons people had to be out and about if they weren't like him. At the doors to the rail station
+he heard an chime, and he paused his rush so he could focus and listen. The prerecorded voice announced that his train
+would arrive shortly. He stepped faster than he'd have liked in order to make it in time. Steps flew past, and corners
+blurred as he half walked, half jogged to make it. He arrived at the **stand** and found he had a minute to spare. He
+was slightly out of breath, and felt his blood pumping from the exertion. He tried to slow his breathing, and get his
+heartbeat back to a relaxed speed. Slow was smooth, smooth was fast. Breathe.
 
 Despite the late hour, the train was not empty. He had to walk towards the back to find a seat. Arthur sat heavily in a
 window seat and turned to look out at the far side of the tunnel wall, blurring past him.
@@ -158,7 +169,7 @@ his target. He took a few breaths, and wiped his hands on the insides of his jac
 clammy and slick. He'd be pushing his luck with this one. In three steps, he closed the gap and leapt.
 
 Arthur felt weightless in the air, like he'd be able to jump across the whole street if he had tried. His arms were up
-and reaching. He'd angled his approach and used the **balustrade** as a boost to do this. That trick had gained him the
+and reaching. He'd angled his approach and used the balustrade as a boost to do this. That trick had gained him the
 extra feet he needed to make this work. All too quickly his outstretched hands slapped against the cold plastic of the
 cabling, and he grabbed hold with all his might. He quickly swung his other arm to grab hold as well. He felt his
 shoulder twinge, and he knew he should have stretched before all this.
