@@ -43,18 +43,19 @@ apartment and went to leave. He swung his hallway door open and went for the sta
 h didn't have to wait for it. It also meant that he'd loose access if his funds ran out. He always kept that in mind
 when leaving. He walked briskly down the hall, tails of his longer black jacket sweeping out behind him. He made good
 time down the stairwell and by the time he reached the bottom floor his heart was racing from excitement and from
-exertion. He needed this job, and he was anxious to get it done and catch up on his bills. He pushed the stairwell door
-open and emerged into the early evening air. He started walking towards the nearest rail station. He wasn't more than a
-block away from a station, so he knew he'd make good time.
+exertion. He needed this job, and he was an equal mix of anxious and excited. He needed this done so he could catch up
+on things he'd been slacking on.
 
-Emerging from the alley behind his building, people passed on his left and right, and did his best to ignore all of
-them. Even though it was late, there was always people moving from one place to another. Arthur liked watching them, he
-liked imagining what reasons people had to be out and about if they weren't like him. At the doors to the rail station
-he heard an chime, and he paused his rush so he could focus and listen. The prerecorded voice announced that his train
-would arrive shortly. He stepped faster than he'd have liked in order to make it in time. Steps flew past, and corners
-blurred as he half walked, half jogged to make it. He arrived at the **stand** and found he had a minute to spare. He
-was slightly out of breath, and felt his blood pumping from the exertion. He tried to slow his breathing, and get his
-heartbeat back to a relaxed speed. Slow was smooth, smooth was fast. Breathe.
+He pushed the stairwell door open and emerged into the early evening air. He started walking towards the nearest rail
+station. He wasn't more than a block away from a station, so he knew he'd make good time. Emerging onto a main street
+from the alley behind his building, people passed on his left and right, and Arthur did his best to ignore all of them.
+Even though it was late, there was always people moving from one place to another. Arthur liked watching them from his
+window, he liked imagining what reasons people had to be out and about if they weren't like him. At the doors to the
+rail station he heard an chime, and he paused his rush so he could focus and listen. The prerecorded voice announced
+that his train would arrive shortly. He stepped faster than he'd have liked in order to make it in time. Steps flew
+past, and corners blurred as he half walked, half jogged to make it. He arrived at the **stand** and found he had a
+minute to spare. He was slightly out of breath, and felt his blood pumping from the exertion. He tried to slow his
+breathing, and get his heartbeat back to a relaxed speed. Slow was smooth, smooth was fast. Breathe.
 
 Despite the late hour, the train was not empty. He had to walk towards the back to find a seat. Arthur sat heavily in a
 window seat and turned to look out at the far side of the tunnel wall, blurring past him.
@@ -89,13 +90,12 @@ short. He patted his jacket pocket for the reassuring weight of the extendable b
 from behind the corner to peer around the corner for the target building.
 
 The street was flanked with rows of skinny midsize rises, each about 3 to 5 floors high. The street itself was bare
-except for a few scraps of trash littering the steps of the various rises. There were no cars, and no people. The rain
-had pushed everyone to leave for shelter. Thin gaps separated the buildings, that Arthur was certain concealed tired and
-restless people, waiting for fairer weather, or helpless victims to pass. He checked the address again and confirmed
-that the target lived on the 3rd floor of the middle building across from him. The room number meant that the target
-lived on the end, but he couldn't tell which end that meant. He pulled out his phone and messaged Rikki "Which corner of
-the building are they in?", and then pocketed his phone instead of waiting for a reply. He turned around and made for
-the back of the building opposite his target.
+except for a few scraps of trash littering the steps of the various rises. There were no cars, and no people which felt
+a bit odd. The rain had probably pushed everyone to leave for shelter. Thin gaps separated the buildings, that Arthur
+was certain concealed tired and restless people, waiting for fairer weather, or for helpless victims to pass. He checked
+the address again and confirmed that 'Lili' lived on the 3rd floor of the middle building across from him. He pulled out
+his phone and messaged Rikki "Which room is hers? Perspective from the outside front of the building", and then pocketed
+his phone instead of waiting for a reply. He turned around and made for the back of the building opposite his target.
 
 He knew he didn't stand a chance of getting in the front, but he was counting on the element of surprise for this plan
 he was quickly making up as he went along. Cutting through the alley he counted until he arrived at the rear of the
@@ -137,11 +137,12 @@ since this meant he'd go completely unnoticed. Nothing to see here, just another
 elements. He tried not to feel to literally about it.
 
 Pulling the monocular away, he leaned forwards and pulled his phone out, careful not to get it wet. Hunched over his
-phone, he dimmed the screen and checked for any replies from Rikki. She had responded with 'the front left'. He pocketed
-his phone and pulled his monocular back up to his face to better examine the target unit. The monocular didn't have
-anything like a camera, night vision, or thermal imaging. Arthur had mostly used it recon, and didn't have the money to
-invest in something like that. He'd once had to take pictures through it via his phone, but that was the most technical
-he'd had to get. He slowly worked the focus and zoom until he could see into the unit via the balcony door and window.
+phone, he dimmed the screen and checked for any replies from Rikki. She had responded with "3rd floor, far left". He
+pocketed his phone and pulled his monocular back up to his face to better examine the target unit. The monocular didn't
+have anything like a camera, night vision, or thermal imaging. Arthur had mostly used it recon, and didn't have the
+money to invest in something like that. He'd once had to take pictures through it via his phone, but that was the most
+technical he'd had to get. He slowly worked the focus and zoom until he could see into the unit via the balcony door and
+window.
 
 Since it was night he had a better time seeing inside the unit. Through the glass balcony door, he could make out a
 small couch and a desk with a monitor on it. He couldn't see much else through the door, and he couldn't see at all
@@ -190,12 +191,44 @@ him by the shoulders, and the rain was hammering his face. His hands would go nu
 would be done for.
 
 Hand over numbing hand, Arthur pulled himself along the cable until he reached the opposite building. He wedged his
-should right up against the concrete and reached up onto the roof. The concrete was even colder than the plastic and he
-struggled to find purchase. Pulling himself overtop the cable, he could now see the roof and use his other hand to drag
-himself over the lip, and onto the flat, graveled roof. He hauled himself into a crouched position on his knees. His
-chest was heaving from the effort and his lungs ached. Gravel clung to his hands and knees and stung him. The cold was
-still their but it had mixed with the warmth of exertion. His lungs stopped aching, and his breathing came under
-control. The rain had soaked him through and he was going to start feeling it again soon, but at that moment he felt
-better than he had in weeks. He stood up on slightly shaky legs and turned around to check if anyone had noticed his
-acrobatic feat. The streets were just as barren as when he'd last checked, and he almost regretted that nobody had been
-witness to his amazing feat. It was for the better.
+shoulder right up against the concrete and reached up onto the roof. The concrete was even colder than the plastic and
+he struggled to find purchase. Pulling himself overtop the cable, he could now see the roof and use his other hand to
+drag himself over the lip, and onto the flat, graveled roof. He hauled himself into a crouched position on his knees.
+His chest was heaving from the effort and his lungs ached. Gravel stung his hands and knees and clung to him where he'd
+scraped it. The cold was still their but it had mixed with the warmth of exertion. Quickly, his lungs stopped aching,
+and his breathing came under control. The rain had soaked him through and he was going to start feeling it again soon,
+but at that moment he felt better than he had in weeks. He stood up on slightly shaky legs and turned around to check if
+anyone had noticed his acrobatic feat. The streets were just as barren as when he'd last checked, and he almost
+regretted that nobody had been witness to his amazing feat. But it was for the better.
+
+He looked to his left now, eyeing up his final hurdle. He planned to drop from here onto the balcony and break in
+through one of the entryways. He paused a second to scan the street below. All this time and he still hadn't seen
+anyone. Not even headlights in the distance. It felt like he'd steeped into a void, or some sort of ghost town. This
+city was never empty. Something felt heavy in his chest.
+
+He refocused on the task at hand, he needed this. He approached the edge of the building and lined up on the balcony he
+had to drop into. He breathed in and out, and on the third breath he started at a jogging pace, and only at the last
+second judged how much to kick off the edge of his building. For the second time that day he felt weightless and strong.
+He was flying through the rain, totally in control of his body and his goal. He could only imagine what sort of sight he
+must be from the ground. His dream of cool success came barreling into his chest with the balcony floor as he half
+rolled, half crashed into the floor. Quickly hauling himself up, Arthur sat crouched in the far corner were he'd landed,
+trying to focus his eyes through the glass sliding door on anything inside. He was sore, but willed himself still,
+blending into the shadows on the balcony to hide. Through the rain speckled glass he could make out the desk and a couch
+better now, and he could see the cooking unit, and the door to the bed room. That door was half open, but he couldn't
+make out anything inside. Breathing in a few times, he unfolded from the corner, and crouch walked over to the bedroom
+window. Arthur paused right before he reached it, and pulled out his phone. He turned on the camera, and inched it into
+view of the room.
+
+The room was devoid of people, but what he could see left him confused and worried. The bed was clean and had been made,
+and there were no clothes on the floor or mess anywhere he could make out. If Lili had been in a rush, the place
+would've been a mess, but as far as he could tell there were no signs of that. Which meant either Lili was out and would
+be back later, or she'd already been ready to leave. Arthur was worried now. He had to track her down, and people mostly
+made mistakes when they were rushed. This person had not been rushed, and he really doubted his luck was so good that
+he'd just caught her out on a smoke break.
+
+Arthur pocketed his phone, and took out his baton. He first felt around the edges of the bedroom window, feeling for any
+purchase. He felt the lip of the outer seal, and tried pulling with his numb fingers. The window didn't budge, so he
+turned and crouch walked the few steps back towards the balcony door. He tried wiggling his fingers into the nearside
+gap, looking to push it open from the outside. He felt it move. Arthur smiled to himself. He angled his baton into the
+seam, and tried to half wedge, half crook the handle into it. It was scratching the metal **edge** but he pushed harder,
+starting to lean into it. He felt it creaking as he slowly overpowered the latch and the door slid open an inch.
