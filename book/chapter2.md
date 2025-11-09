@@ -231,4 +231,117 @@ purchase. He felt the lip of the outer seal, and tried pulling with his numb fin
 turned and crouch walked the few steps back towards the balcony door. He tried wiggling his fingers into the nearside
 gap, looking to push it open from the outside. He felt it move. Arthur smiled to himself. He angled his baton into the
 seam, and tried to half wedge, half crook the handle into it. It was scratching the metal **edge** but he pushed harder,
-starting to lean into it. He felt it creaking as he slowly overpowered the latch and the door slid open an inch.
+starting to lean into it. He felt it creaking as he slowly overpowered the latch and the door groaned open an inch. Now
+he fully inserted the baton into the gap and wedged it to lever open the door the rest of the way. It let out one final
+groan and then a satisfying pop as the metal latch fully snapped and the door rolled open.
+
+He crouch walked into the room, dripping rainwater onto the clean floor. Without turning he slide the door shut behind
+him. It wouldn't shut all the way, but it was good enough. He stood there a moment, tensed. He was pretty sure the place
+was empty, but it could be a trap, or he could have just been wrong. He strained his hearing to try and decipher
+anything that would indicate danger, but all he could here was the soft tapping of rain on glass. He stood up to his
+full height, and rolled his sore shoulders, taking a moment to relax and ready himself at the same time. The room was
+dark and quiet, and now that he was standing he could see that it was neat and tidy. He was by far the messiest thing in
+the room, and he was slowly spreading a puddle of water onto the floor. He pulled a mat over and covered the small mess
+he'd made, walked over to the bed room. Arthur held his baton in front of him, low but ready, in case and turned into
+the bedroom. It was as clear os the rest of the apartment. He went and checked the bathroom, and saw that while it had
+signs of use, it was also tidy and neat. As far of decoration went, the apartment had a double mattress with plain
+sheets, some basic storage of fake wood cabinets, a cloth couch, and a desk with a desktop plugged in. He went through
+all the drawers and shelves, finding nothing out of place, and nothing obviously missing. It was like this "Lili" had
+either stepped out this morning and never returned, or she'd had everything set up and just abandoned her life here. He
+sat on the couch, which faced towards the desk and tried to think. Then he had an idea.
+
+He pulled out his phone and tapped on Rikki's contact icon. A soft dialing tone came from his phone and he put it to his
+ear, bracing for the emotional damage this was going to do to him.
+
+_Click_
+
+"I need your help" Arthur said, with his eyes closed, his face scrunched up in self disgust, and his gut tightening in
+apprehension.
+
+"More than you know." Rikki snapped back, the sarcasm dripping from her tone. "I take it she's not there."
+
+"No. The place is empty and there's not much to go on. But there's a desktop here" Arthur paused for a second. "I figure
+maybe you could help with that?" He paused for what felt like an eternity. He didn't actually know if she could help
+him, but he knew she was good with computers and software. Maybe she had a solution.
+
+"Is it passw- actually dont answer that." She cut herself off mid statement. "Put me on speaker, and plug me into a
+port."
+
+Arthur did as he was told, and fumbled out a cable to connect his phone to the computer.
+
+"Wait" Rikki said over the speakerphone.
+
+Arthur paused, one end of the cable connected to his phone, the other inches from connecting to the machine.
+
+"Did you already plug in the phone?" She asked.
+
+"No"
+
+"Good, turn off the desktop first, then plug me in, then find the keyboard, turn it on, and then hold down the delete
+key." She paused. "Got all that?"
+
+Arthur paused a second, he was identifying th delete key on the keyboard, even though he'd used one a million times
+before. After a second he replied "Got it. I'll let you know when I turn it on"
+
+"Thanks" the woman on the speaker. Then a second later "Wait!".
+
+Arthur's heart rate was spiking from all this constant back and forth. "I'm waiting" He replied, trying to keep his tone
+calm and cool.
+
+"Remember that app I had you install forever ago? Turn it on, and keep it running before you turn the computer on."
+Rikki's voice had a shakiness to it. She was certainly strained to setup whatever she was planning, and having to manage
+him and her own stuff was clearly a stretch of her skills.
+
+"Got it." With everything prepped he let out a breath he didn't know he'd been holding. "I'm ready on my end, you good?"
+
+"Do it" Rikki responded, her voice icy and focused.
+
+Arthur power cycled the machine, and did as he was instructed. He was looking a screen, and then it turned blue with a
+bunch of text and some options.
+
+"Let go of the keyboard, and select boot options." Rikki's voice came from the phone.
+
+Arthur did as he was told and carefully read the options on the monitor. He found one labeled "Boot options" and clicked
+it.
+
+"You'll need to use the keyboard" Rikki replied before he could even ask.
+
+Arthur was getting frustrated with this, but he did as he told. A second later Rikki gave him more instructions, and
+after a couple minutes of back and forth troubleshooting they made progress. Now the screen was flashing with all sorts
+of text and info. Arthur could here loud clacking over the call. Rikki was typing faster than he could even dream, and
+she was clearly focused. He waited for her inevitable gloating to start.
+
+"So I've found something. But I can't read it." Rikki started, "you see most of the stuff on here is unencrypted, and
+useless. But there's a drive that I can't read. That's probably important. I'm gonna need you to get that and bring it
+to me. I can't copy it from here." Rikki said.
+
+She sounded worn out, despite not actually having done anything nearly as strenuous as what he'd done. Arthur had pulled
+up a chair and sat quietly while this had gone down. Much to his surprise Rikki's searching had taken longer than it had
+to hack in. He was about to respond to her when he paused. His heart was suddenly beating too loud, and he willed his
+ears to ignore it. He heard scratching coming from the door. He acted faster than he could talk. He ripped his phone
+from the connection, and clenched his first, around it in a desperate struggle to power it off without properly finding
+the button. He heard a faint squeak and then nothing from his phone, and the monitor flashed a bunch of corrupted
+letters, then died. He dived behind the far end of the couch just as the door opened, spilling light into the room.
+Arthur desperately tucked himself behind the arm of the couch and thanked god that he'd kept his hood on.
+
+From his position behind the arm of the couch, he was facing towards the glass door of the balcony. In the reflection he
+could see a figure standing in the brightly lit doorway. They were dressed in loose, but not obstructive black clothing.
+From what he could tell they had a mask on and some sort of googles over their eyes. His own reflection didn't show any
+meaningful shape and instead made him look like a dark pile of cloth. He was fixed in place, knowing full well that any
+movement would give him away. The figure stepped inside, and closed the door without looking. The faint click and snap
+told him they'd locked it behind them. The figure surveyed the room from a standstill and paused looking at the doorway
+to the bedroom. They raised one arm up, and leveled the other underneath it, a small shaped in their hand. Arthur
+figured it was a gun of some sort, but he didn't recognize the type outright. One careful step after the other, the
+figure moved towards the bedroom door. They were clearly experienced and held a low stance, ready for a fight. Arthur
+was suddenly very aware of the mess he'd made on the way in. As the figure stepped closer and closer, he lost his view
+in the reflection of the glass balcony door. Arthur had to wait until he was sure the figure wouldn't see him move. It
+was agony, but he forced himself to wait , counting the seconds in his head. At the bottom of his count he silently
+shifted from the end of the couch to the front, crouching lower so the figure wouldn't be able to see him.
+
+To his credit, he was as silent as a shadow. He made it all the way to the other end of the couch and peaked around the
+corner. From his new point of view he saw the figure had their back turned towards him. He also noticed that they'd were
+a bit smaller than him. He ducked back behind the couch as the figure swept back and forth, clearing the bedroom. Arthur
+knew his time was running out. He looked at the door, and tried to imagine if he still had enough time to unlock it and
+escape into the hallway. He was halfway through his mental preparation, when he heard a click from the bedroom.
+Footsteps followed, quiet, but not silent. They were crossing back out into the living room, but they paused. It was
+only a few seconds, but to Arthur it felt like an eternity.
