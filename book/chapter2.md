@@ -326,22 +326,70 @@ Arthur desperately tucked himself behind the arm of the couch and thanked god th
 
 From his position behind the arm of the couch, he was facing towards the glass door of the balcony. In the reflection he
 could see a figure standing in the brightly lit doorway. They were dressed in loose, but not obstructive black clothing.
-From what he could tell they had a mask on and some sort of googles over their eyes. His own reflection didn't show any
-meaningful shape and instead made him look like a dark pile of cloth. He was fixed in place, knowing full well that any
-movement would give him away. The figure stepped inside, and closed the door without looking. The faint click and snap
-told him they'd locked it behind them. The figure surveyed the room from a standstill and paused looking at the doorway
-to the bedroom. They raised one arm up, and leveled the other underneath it, a small shaped in their hand. Arthur
-figured it was a gun of some sort, but he didn't recognize the type outright. One careful step after the other, the
-figure moved towards the bedroom door. They were clearly experienced and held a low stance, ready for a fight. Arthur
-was suddenly very aware of the mess he'd made on the way in. As the figure stepped closer and closer, he lost his view
-in the reflection of the glass balcony door. Arthur had to wait until he was sure the figure wouldn't see him move. It
-was agony, but he forced himself to wait , counting the seconds in his head. At the bottom of his count he silently
-shifted from the end of the couch to the front, crouching lower so the figure wouldn't be able to see him.
+From what he could tell they had a half mask covering the bottom of their face and some sort of googles over their eyes.
+His own reflection didn't show any meaningful shape and instead made him look like a dark pile of cloth. He was fixed in
+place, knowing full well that any movement would give him away. The figure stepped inside, and closed the door without
+looking. The faint click and snap told him they'd locked it behind them. The figure surveyed the room from a standstill
+and paused looking at the doorway to the bedroom. They raised one arm up, and leveled the other underneath it, a small
+shaped in their hand. Arthur figured it was a gun of some sort, but he didn't recognize the type outright. One careful
+step after the other, the figure moved towards the bedroom door. They were clearly experienced and held a low stance,
+ready for a fight. Arthur was suddenly very aware of the mess he'd made on the way in. As the figure stepped closer and
+closer, he lost his view in the reflection of the glass balcony door. Arthur had to wait until he was sure the figure
+wouldn't see him move. It was agony, but he forced himself to wait , counting the seconds in his head. At the bottom of
+his count he silently shifted from the end of the couch to the front, crouching lower so the figure wouldn't be able to
+see him.
 
 To his credit, he was as silent as a shadow. He made it all the way to the other end of the couch and peaked around the
-corner. From his new point of view he saw the figure had their back turned towards him. He also noticed that they'd were
-a bit smaller than him. He ducked back behind the couch as the figure swept back and forth, clearing the bedroom. Arthur
-knew his time was running out. He looked at the door, and tried to imagine if he still had enough time to unlock it and
-escape into the hallway. He was halfway through his mental preparation, when he heard a click from the bedroom.
-Footsteps followed, quiet, but not silent. They were crossing back out into the living room, but they paused. It was
-only a few seconds, but to Arthur it felt like an eternity.
+corner. From his new point of view he saw the figure had their back turned towards him. From here he could see that they
+were smaller than him. He decided that he could take them in hand to hand. He ducked back behind the couch as the figure
+swept back and forth, clearing the bedroom. Arthur didn't recognize the weapon, but he knew his time was running out. It
+didn't really matter if it was less than lethal or not, either way that'd be the end for him. He looked at the door, and
+tried to imagine if he still had enough time to unlock it and escape into the hallway. He was halfway through his mental
+preparation, when he heard a click from the bedroom. Footsteps followed, quiet, but not silent. The footsteps were
+crossing back out into the living room, but they paused. It was only a few seconds, but to Arthur it felt like an
+eternity. He knew it was about to be the moment. The moment when you committed to violence, to confrontation. The moment
+where you had to embrace the darker side, and block out everything else. His pulse quickened as adrenalin flooded his
+veins. His ears started ringing from the sudden pressure change, and he suddenly felt like he had to pant to breath. He
+sucked in a breath, and sprung.
+
+In the time since he'd last looked, the other intruder had turned to inspect the balcony door. They had clearly noticed
+the small mess he'd made, and the crack in the door. He figured that distraction was to his advantage. They were sideway
+from where he'd been hiding, and had dropped their arms to their sides. The click he'd heard had been their sidearm, yet
+another boon in his favor. He pulled his arm back to make a blow, intending to swing his baton. With an extra flick of
+his wrist he extended it to it's full length and swung with all he had at their head. He heard a half grunt of surprise,
+and then saw to his horror ans they dropped lower and sprung towards him. They both collided mid-air and fell in heap on
+the floor. His baton arm was pinned, but he jabbed with his free hand into their side, he landed one blow and they let
+out another grunt, but followed up with a punch to his chest which pushed the air out from his lungs. Before he could
+breath they rolled over him with his baton arm still held and wrenched his wrist. He couldn't help but yelp in pain and
+drop his weapon. He couldn't even double over anymore with the other person laying on top over him, but he managed to
+suck in a breath and grab them in a bear hug. He swung his legs up and managed to push off the couch, flipping over so
+he was on top. It only half worked as the other had slipped out midway through and had rolled into a crouched position
+at the corner of the couch. He had ripped the goggles off and saw a pair of piercing dark eyes glaring at him. They
+belonged to a woman and she didn't hold back anymore. She sprung up at him and delivered a flurry of kicks to his sides.
+He managed to block some of them, but she landed a few to his already sore sides and shoulders. He backed off and
+crashed into a shelf, knocking plates and belongings onto the floor in a crescendo of noise and thumps. Back against she
+swung again aiming for his head. He managed to sidestep her, and instead shoved her with all his strength into the
+shelf. She let out a grunt and he a huff as he drove all the wind from her lungs. He took the chance to back off, and
+without trying to seem desperate, he deigned to try a different tactic.
+
+"Lili, I'm here to help you." he said, breathing hard and holding up a weak hand in front of him. His wrist was
+throbbing and pain was shotting up his sides where she'd landed her kicks. She paused for a second, and he thought she
+even caulked her head to the side, pondering what he'd just said. Before he could keep talking, she reached towards her
+side and went to pull her sidearm. Arthur cursed his bad planning, and his bad judgement. This woman was better than him
+in every way. She was better equipped, and better trained. He was outclassed and he knew it. She probably knew it too.
+He leapt again at her, intending to pin her arms so she couldn't draw on him. She saw him leap again, and went to block
+him but she slipped. He tumbled into her and missed the grab. She was on the floor and he was only managed to grab her
+arm. In this new position, she had pinned her own arm and couldn't draw on him. He used his bigger size to pin her and
+felt her land blow after blow with her free arm. He braced himself against it and dug his boots into the floor to hold
+her pinned against the floor and the wall. He gritted his teeth and put all he could into keeping her pinned. After what
+felt like forever he felt her loosen up a fraction, and he heard her yell at him.
+
+"I'm not Lili you asshole."
+
+He almost loosened up, but he kept digging he boots into the floor, and kept shoving her into the corner.
+
+"Killing me wont get you paid, and I can't exactly claim your her either. So lets just go our separate ways. Clearly
+she's long gone." She said, straining under his pressure, but more controlled than last time.
+
+Arthur let up a fraction, but didn't loosen his grip on her arm. "I'm not here to kill her, I'm trying to find her" he
+said. He felt like the woman was about to formulate a reply, he felt, and not heard an explosion from the doorway.
