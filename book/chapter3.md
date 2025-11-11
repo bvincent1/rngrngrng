@@ -1,7 +1,6 @@
 ---
 title: the meeting
 description: Meet Hector, Hector meets Peter
-word_count: 11631
 ---
 
 Hector's world slowly came back into focus. Consciousness leaked back into his body. It started in his hands and feet,
