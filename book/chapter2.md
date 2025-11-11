@@ -438,3 +438,33 @@ If he hadn't have know it was there, he'd have never sen the cable suspended bet
 probably looked like he had just chosen to leap off a three story building rather than face the heavily armed assault
 force that had bore down on them. Arthur really would've preferred a three story fall to being riddled with bullets, but
 he would've probably paused for a second longer before committing to a last ditch move such as that.
+
+This leap was much more frantic and desperate than his previous time. His angle had been much more aggressive since he
+didn't want to leave anything to chance. The cable caught him across his chest and he swung back and forth laterally
+with his left arm over it a few times. He was about to swing his legs up and begin his **clamber** to freedom when he
+felt the cable violently shake and a grunt from next to him.
+
+He turned in horror to see the woman had leapt in front of him. She had aimed past him, further towards the center, and
+had therefore grabbed on by her elbow instead her armpit like him. He had honestly expected her to take longer to make
+up her mind, and therefore give him a chance to clamber further across. Instead they were now both next to each other,
+but with her hanging lower than him. Arthur's already adrenalin fired brain was struggling to think of what to do next,
+when he suddenly dropped a few feet. He gripped the cable harder than he'd gripped anything in his life. The woman let
+out a small scream, but held on she turned just her head to face him, the fear and anger clear in her eyes. That was all
+he could see above below the rain slick hair, and the soaking mask which had slipped to under her nose. He was about to
+say something when he dropped another few feet. Then he heard a a series of pops, and a single deafening snap. Over all
+the noise of the rain, and surely gunfire the snap rang clearest. His heart leapt into his throat long before the
+gravity got hold of him. Now it was his turn to yell, and the woman he was with screamed too. They fell together for
+what seemed like an eternity. Arthur couldn't see anything in front of him because the woman was blocking his view. Soon
+the line went tight and he was jerked forward, barely able to hold on. The cable was freezing and slick with rain. His
+stomach lurched and he knew that the ground was going to come up any moment now. Together they were rotating on the
+cable and at the last moment he caught a split second view of the opposite building coming into view. He didn't have
+time to brace or cushion the blow and he slammed full tilt into the hard concrete.
+
+He felt a crunch and a bang, and suddenly he opened his eyes to see he was on the ground in a heap. He was sitting on
+his ass, in the cold and wet with the cable next to him in a pile. He blinked away the rain and noticed that his head
+was ringing and that he was in incredible pain. He opened his mouth but nothing came out, just a hollow noise from his
+chest. The woman was there, in front of him, standing. She seemed to have faired much better than he had, and he
+desperately wanted to ask her for help. He couldn't form any words but he saw a look of confusion and anger in her face.
+He felt cold and tired, and he knew he was about to pass out. He tried to lift an arm to grab her, to steady himself,
+but he felt himself pitch forward onto the sidewalk. He lay there an instant, hoping to get help, unsure what would
+happen to him. He closed his eyes and the world faded away.
