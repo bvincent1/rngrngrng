@@ -392,4 +392,49 @@ He almost loosened up, but he kept digging he boots into the floor, and kept sho
 she's long gone." She said, straining under his pressure, but more controlled than last time.
 
 Arthur let up a fraction, but didn't loosen his grip on her arm. "I'm not here to kill her, I'm trying to find her" he
-said. He felt like the woman was about to formulate a reply, he felt, and not heard an explosion from the doorway.
+said. He was about to keep going when he was thrown up against the wall in a heap beside the woman. It was a tangle of
+arms and legs as the woman struggled to struggle her arms free, and leverage her legs out from under him. Arthur
+meanwhile was now facing the door and saw two armed figures entering a blown out doorway. It registered to him a second
+later that the door had been breached and had crashed into the glass balcony door. He'd been thrown by the pressure wave
+and now he had new problems. The two figures were heavily armed and had begun sweeping the room in an aggressive
+fashion. The woman, partially underneath him finally freed her gun and raised it above her head and fire off shots in
+the direction of the newest intruders. They immediately ducked, fired back with high aim, and retreated to the hallway
+beyond. It took a near miss to break the stupor that had come over him, and he immediately dove into action. He crawled
+forward and roughly tipped the couch into a form of visual cover. The woman dove after him, taking cover behind the
+makeshift barrier, while leveling her pistol high over her head to keep up a steady barrage.
+
+Arthur dropped into a prone position, knowing full well that any return fire would shred the couch they'd taken refuge
+behind. To her credit the woman had emptied her magazine and slotted in a new one with alarming speed and precision. "We
+need to get out of here!" he yelled over the barrage.
+
+"How about you get your gun out and help me instead?" the woman said, not even pausing her staccato of suppressive
+shots. "That was the only entrypoint!!" She screamed, clearly about to loose it on either him, or the assailants outside
+the door.
+
+Her gun clicked empty and she ducked, then lay prone on the floor. A split second later return fire sounded. Bullets and
+couch material exploded out inches above them. Arthur felt like he'd never been so close to live fire in his life and
+was sure that any second one the rounds would hit him. he forced himself to look away from the impending death, and
+towards his feet where the shattered balcony was. He needed to make it out there and then he could escape roughly the
+same was he came in. Maybe this new friend of his would even make it if she followed his lead. He just needed a
+distraction. He glanced around and saw only destruction and chaos. With a sickening feeling he reached into his chest
+pocket and produced his monocular. He rolled onto his back, and with his free hand patted the woman on her should, held
+a single finger to his mouth, and then yelled at the top of his lungs. "Grenade out!!"
+
+A split second later he lobbed the tubular object from a prone position over the couch and beyond. He never knew where
+it landed. He never got the chance to find out later. All he knew was a split second later the firing paused, and he
+thought he could make out muffled shouting. What he did know is that it was now over never. He rolled to his feet and
+sprung into what remained of the glass door. He tucked his head behind his arm and shoulder and crashed through it,
+landing in a shower of wet glass on the hard and cold concrete. The woman was half a second behind him, and got a much
+better deal because of it. She grabbed him by the good shoulder and pulled him up into cover behind the concrete wall
+separating the door and the bedroom window.
+
+"Now what?!" she yelled at him.
+
+The rain was coming down hard now, and her hair was getting soaked. Arthur couldn't help but notice her eyes again, dark
+and scared above the mask covering her mouth and nose. He turned to face out, calling back to her as he built up speed.
+"Now we jump for it!" he yelled, leaping off the balcony railing.
+
+If he hadn't have know it was there, he'd have never sen the cable suspended between the neighboring buildings. It
+probably looked like he had just chosen to leap off a three story building rather than face the heavily armed assault
+force that had bore down on them. Arthur really would've preferred a three story fall to being riddled with bullets, but
+he would've probably paused for a second longer before committing to a last ditch move such as that.
