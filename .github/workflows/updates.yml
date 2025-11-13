@@ -37,7 +37,3 @@ jobs:
         with:
           # A clear commit message for the auto-formatting
           commit_message: 'Auto-format Markdown files & update word counts'
-          # Files to include in the commit (defaults to all changed files)
-          file_pattern: '**/*.md'
-          # Use a GitHub Token with write access
-          token: ${{ secrets.GITHUB_TOKEN }}
