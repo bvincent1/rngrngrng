@@ -1,5 +1,9 @@
 # RNG
 
+## Genres
+
+[\#sci-fi]()[\#cosmic-horror]()[\#dystopian]()
+
 ## Synopsis
 
 A new war is brewing and Arthur Caspar has unintentionally landed right in the middle of it. A mysterious new force is

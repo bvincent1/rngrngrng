@@ -684,7 +684,8 @@ swing. He inched to the corner of the boxes,trying to muster his willpower for w
 heart was racing, and his blood was hot now. He could feel the adrenaline pumping through his veins.
 
 In one smooth motion he turned the corner, roaring as load as he could, holding the pipe high for a quick blow to the
-head. There was a crouched figure facing into the corner not looking towards him. He could not tell its gender, but it
-was covered in a hooded cloak. For a split second Hector thought he heard whispering before the figure turned towards
-him. Hector didn't make out a face, but he saw the eyes. They were two points of light and darkness, somehow both at
-once, and swirling with in the sockets. As soon as he looked fully into those orbits, Hector's world exploded.
+head. There was a crouched figure facing into the corner, not looking towards him. He could not tell its gender, but it
+was covered in a hooded cloak. For a split second Hector thought he heard whispering, then the figure turned towards
+him. He was charging full tilt and cound't make out a face, but he saw the eyes. They were two points of light and
+darkness, somehow both at once and somehow swirling within the sockets. As soon as he looked fully into those orbits,
+Hector's world exploded.
