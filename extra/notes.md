@@ -1,6 +1,7 @@
 ## Spoilers
 
 ## backdrop
+
 - batteries didn't really get any better
   - still not high enough energy density to go sci-fi
 - people still fairly cheap
@@ -19,6 +20,7 @@
 - overcrowding
 
 ### Ch 1
+
 - intro in the shark tank
   - dark
   - "underwater"
@@ -33,6 +35,7 @@
 - savior is brought away for testing / integration
 
 ### Ch 2
+
 - intro to outside
 - intro to `Arthur`
-- 
+-

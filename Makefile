@@ -1,6 +1,6 @@
 
 format:
-	@yarn run prettier -w ./book/*
+	@yarn run prettier -w ./**/*.md ./*.md
 .PHONY: format
 
 COUNT_FILE="./counts.txt"
