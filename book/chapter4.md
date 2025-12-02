@@ -93,47 +93,60 @@ the elevators, conscious of the pistol holster bumping into her side underneath 
 and punched in her floor number. She waited, hopping no one would get on. She watched as the metal doors inched closer
 and closer together, and breathed a sign of relief.
 
-"Hold up", a dry and raspy male voice said, before she saw an ugly hand jut between the doors. Andrea sucked in a
-breath, and consciously reassured herself with the pistol pocking into her side. The metals doors opened and she knew
-she'd just stumbled into a nightmare. A robed figure, just as ugly as the hand, stepped into the elevator, and nodded to
-the floor controls.
+"Hold up", a dry and raspy male voice said, before she saw an ugly, wrinkled hand jut between the doors. Andrea sucked
+in a breath, and consciously acknowledge the pistol pocking into her side for reassurance. The metals doors opened and
+she knew she'd just stumbled into a nightmare. A heavily shrouded figure, with thick flowing robes stepped into the
+elevator. The voice was male, but she could barely make out any distinguishing features beside the hand, and the bottom
+of the face.
 
-"Could you pick floor 124 for me?" A voice creaked from the beneath the hood asked.
+"Could you pick floor 124 for me?" A voice creaked from the beneath the hood.
 
-Andrea felt her heart flutter, she had already punched that in as her destination. She knew that today must be some sick
-joke the universe had decided to play on her. She made a token effort to select the floor, despite it clearly being
-highlighted. The elevator doors slowly began closing again, and she wondered if she should just get off and wait for the
-next one. But the man would just be there anyways, so she resigned herself to her fate.
+The voice sounded as old as the wrinkled hand suggest, and Andrea felt her heart flutter. That was her floor.
 
-With a jolt, the elevator accelerated up and she exhaled slightly, conscious of the breath she'd been holding in.
-Without trying to be overt, she tried to get at good look at the man, hoping he wouldn't notice her and try to start a
-conversation. The first thing she'd noticed was that his robes weren't particularly ugly like him, but a deep red. The
-robes covered him from the hood obscuring his face, to the slight bundling of a filthy train at his feet. All she could
-see of the man wearing them was his face and his hands. The attire made him look insect like, almost like a beetle. She
-saw his hands were wrinkled, but not so much as with age, but with loose skin. His nails were too long, and lent a
-strong comparison to claws. Andrea couldn't help but tilt her head up slightly to try and get a look at his face. His
-long and pointed chin stuck out from his hood, followed by thin pale lips, and a curved nose above them. She couldn't
-help but follow up the face trying to make out his eyes in the recesses of his face and covered by the deep folds of his
-hood. Her eyes locked with his. Tiny pinpoints of reflected light, were pointing straight at her, and her stomach
-lurched. She took in a breath, bracing herself for the smell of wet human, but was greeted by an earthy, slightly sweet
-aroma.
+She immediately knew that today must be some sick joke the universe had decided to play on her. First she'd spent the
+whole day chasing around bogus leads given to her by the incompetents in her office, only to get disarmed by some
+amateur in thrifted gear, and finally almost killed by a hit squad with more firepower than subtlety. She could feel the
+anger coursing through her veins, and her patience evaporated.
 
-"Do you know of our order?" A voice leaked out from the thin lips.
+"Miss?" The voice rasped, a single wrinkled finger complete with jagged nail pointed to the elevator controls.
 
-"No", she said flatly and quickly turned away. She'd been caught staring, and this old man had clearly misinterpreted
-her caution for interest.
+She made a token effort to select the floor, despite it clearly being highlighted and settled in the rear corner
+opposite the veiled man. The elevator doors slowly began closing again, and she wondered if she should just get off and
+wait for the next one. But the man would just be there anyways, so she resigned herself to her fate.
 
-"We are part of the church of evolution, of the order saturniidae" he said.
+With a familiar jolt, the elevator accelerated up and she exhaled slightly, conscious of the breath she'd been holding
+in. She took in a breath, bracing herself for the smell of wet human, but was greeted by an earthy, slightly sweet
+aroma. Strange. Without trying to be overt, she tried to get a better look at the man, hoping he wouldn't notice her and
+try to start a conversation. The first thing she'd noticed was that his robes weren't particularly ugly like him, but
+well kept, and a deep red color that reminded her of insects. The robes were made of a thick gaged cloth, and covered
+him almost completely. The hood obscured most of his his face, and pilled at his severely hunched neck and shoulder.
+From there is was straight down to the floor the outfit dragged behind him. The whole look exasperated the insect
+metaphor and did nothing to invite approachability. What she could see of the man, made her dread the sight of him in
+any other outfit. She saw his hands were wrinkled, not so much as with age, but with loose skin. His nails were too
+long, and lent a strong comparison to claws. Continuing her threat assessment, Andrea couldn't help but tilt her head up
+slightly to try and get a look at his face. His long and pointed chin stuck out from his hood, followed by thin pale
+lips, and a curved nose above them. She couldn't help but follow up the face trying to make out his eyes in the recesses
+of his hood. Her eyes locked with his. Tiny pinpoints of reflected light, were pointing straight at her, and her stomach
+lurched.
 
-"Never heard of it", Andrea felt his eyes boring into her, and she feigned busying herself with something inside her
-jacket.
+"Do you know of our order?" A voice leaked out from the thin lips. Sounding more like air escaping a rigored corpse than
+an actual human being.
+
+"No", she said flatly and quickly turned her head away. She'd been caught staring, and now she'd have to pay the price.
+
+"I am are part of the church of evolution, of the order saturniidae" he said. "My name is Jacob."
+
+"Never heard of it", Andrea chirped hoping to cut the man off and forestall any further conversation. Andrea felt his
+eyes boring into her, and she feigned busying herself with something inside her jacket.
 
 "It's a very old one" he said, "but recently we've seen a growth in popularity". Without even a pause, he continued.
-"Tell me. Do you feel incomplete. Like something is missing from your life? Like there's some part of you, not missing
+"Tell me. Do you feel incomplete? Like something is missing from your life? Like there's some part of you, not missing
 per say, but that you feel is important? Like you're incomplete? It's fairly common in todays climate, with things being
 as they are."
 
 She could hear him fumbling with something in his pocket, and she dreaded the thought of having to receive anything from
-this person, let alone some flier or info card. There was a ding, and she had never been so happy in all her life to
-hear it. From the doors, a soft click sounded and the doors quietly rumbled open. Without even pausing to look, Andrea
-stepped around the man, and practically leapt out of the enclosed space.
+this person. There was a familiar, universal ding, and she had never been so happy in all her life to hear it. From the
+doors, a soft click sounded and the doors quietly rumbled open. Without even pausing to look at the man, Andrea stepped
+around him, and practically leapt out of the enclosed space.
+
+
