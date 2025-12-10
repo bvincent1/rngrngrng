@@ -39,10 +39,10 @@ people like him. He'd yet to meet her in person, but she seemed nice enough the 
 
 Arthur watched as the app opened and the route loaded onto the map. A line connected between him and the dot where the
 address was. He studied the map's directions, then pocketed his phone. He jumped into his boots on the floor at the edge
-of his bed and reached for his stash of gear. Pocketing most of it, he searched for his jacket and found it in the floor
+of his bed and reached for his stash of gear. Pocketing most of it, he searched for his jacket and found it on the floor
 were he'd foolishly discarded it. Pulling it over his arms and smoothing the fit, he did one last check of his tiny
 apartment and went to leave. He swung his hallway door open and went for the stairwell. His door was keypad operated so
-h didn't have to wait for it. It also meant that he'd loose access if his funds ran out. He always kept that in mind
+he didn't have to wait for it. It also meant that he'd loose access if his funds ran out. He always kept that in mind
 when leaving. He walked briskly down the hall, tails of his longer black jacket sweeping out behind him. He made good
 time down the stairwell and by the time he reached the bottom floor his heart was racing from excitement and from
 exertion. He needed this job, and he was an equal mix of anxious and excited. He needed this done so he could catch up
@@ -303,8 +303,8 @@ bunch of text and some options.
 
 "Let go of the keyboard, and select boot options." Rikki's voice came from the phone.
 
-Arthur did as he was told and carefully read the options on the monitor. He found one labeled "Boot options" and clicked
-it.
+Arthur did as he was told and carefully inspected the options on the monitor. He found one labeled "Boot options" and
+clicked it.
 
 "You'll need to use the keyboard" Rikki replied before he could even ask.
 
@@ -321,7 +321,7 @@ She sounded worn out, despite not actually having done anything nearly as strenu
 up a chair and sat quietly while this had gone down. Much to his surprise Rikki's searching had taken longer than it had
 to hack in. He was about to respond to her when he paused. His heart was suddenly beating too loud, and he willed his
 ears to ignore it. He heard scratching coming from the door. He acted faster than he could talk. He ripped his phone
-from the connection, and clenched his first, around it in a desperate struggle to power it off without properly finding
+from the connection, and clenched his first around it in a desperate struggle to power it off without properly finding
 the button. He heard a faint squeak and then nothing from his phone, and the monitor flashed a bunch of corrupted
 letters, then died. He dived behind the far end of the couch just as the door opened, spilling light into the room.
 Arthur desperately tucked himself behind the arm of the couch and thanked god that he'd kept his hood on.
@@ -329,17 +329,17 @@ Arthur desperately tucked himself behind the arm of the couch and thanked god th
 From his position behind the arm of the couch, he was facing towards the glass door of the balcony. In the reflection he
 could see a figure standing in the brightly lit doorway. They were dressed in loose, but not obstructive black clothing.
 From what he could tell they had a half mask covering the bottom of their face and some sort of googles over their eyes.
-His own reflection didn't show any meaningful shape and instead made him look like a dark pile of cloth. He was fixed in
-place, knowing full well that any movement would give him away. The figure stepped inside, and closed the door without
-looking. The faint click and snap told him they'd locked it behind them. The figure surveyed the room from a standstill
-and paused looking at the doorway to the bedroom. They raised one arm up, and leveled the other underneath it, a small
-shaped in their hand. Arthur figured it was a gun of some sort, but he didn't recognize the type outright. One careful
-step after the other, the figure moved towards the bedroom door. They were clearly experienced and held a low stance,
-ready for a fight. Arthur was suddenly very aware of the mess he'd made on the way in. As the figure stepped closer and
-closer, he lost his view in the reflection of the glass balcony door. Arthur had to wait until he was sure the figure
-wouldn't see him move. It was agony, but he forced himself to wait , counting the seconds in his head. At the bottom of
-his count he silently shifted from the end of the couch to the front, crouching lower so the figure wouldn't be able to
-see him.
+His own reflection didn't show any meaningful shape and instead made him look like a dark pile. He was fixed in place,
+knowing full well that any movement would give him away. The figure stepped inside, and closed the door without looking.
+The faint click and snap told him they'd locked it behind them. The figure surveyed the room from a standstill and
+paused looking at the doorway to the bedroom. They raised one arm up, and leveled the other underneath it, a small shape
+in their hand. Arthur figured it was a gun of some sort, but he couldn't recognize the type outright from the
+reflection. One careful step after the other, the figure moved towards the bedroom door. They held a low stance, ready
+for a fight. Experienced. Arthur was suddenly very aware of the mess he'd made on the way in. As the figure stepped
+closer and closer, he lost his view in the reflection of the glass balcony door. Arthur had to wait until he was sure
+the figure wouldn't see him move. It was agony, but he forced himself to wait , counting the seconds in his head. At the
+bottom of his count he silently shifted from the end of the couch to the front, almost crawling so the figure wouldn't
+be able to see him.
 
 To his credit, he was as silent as a shadow. He made it all the way to the other end of the couch and peaked around the
 corner. From his new point of view he saw the figure had their back turned towards him. From here he could see that they
