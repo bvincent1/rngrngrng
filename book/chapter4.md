@@ -134,7 +134,7 @@ an actual human being.
 
 "No", she said flatly and quickly turned her head away. She'd been caught staring, and now she'd have to pay the price.
 
-"I am are part of the church of evolution, of the order saturniidae" he said. "My name is Jacob."
+"I am are part of the church of evolution, of the order saturniidae" he said. "I'm acolyte Jacob."
 
 "Never heard of it", Andrea chirped hoping to cut the man off and forestall any further conversation. Andrea felt his
 eyes boring into her, and she feigned busying herself with something inside her jacket.
@@ -149,4 +149,101 @@ this person. There was a familiar, universal ding, and she had never been so hap
 doors, a soft click sounded and the doors quietly rumbled open. Without even pausing to look at the man, Andrea stepped
 around him, and practically leapt out of the enclosed space.
 
+Andrea was so distracted trying to ignore the acolyte, that she didn't look up until it was almost too late. She had
+almost collided with someone waiting at the top of the elevator, and had to quickly throw herself back to arrest her
+momentum. She let out a small **scream**, and the pedestrian threw up an arm to ward off some unknown attacker. Andrea
+cursed herself for this, and when she caught her balance again, she tried to duck around the flailing person, only to
+find herself face to face with a group of acolytes. She stopped and stood there, dumbstruck by the sight. Slowly the
+horror rose through her body as she dreaded yet more pointless conversations of saviors and completeness.
 
+The hooded faces all snapped to look her dead in eyes, and she was stunned by the speed and ferocity of the motion. It
+was some sort of hivemind they or group mentality they must have used to track her and descend onto her in a vain
+attempt at committing yet another sinful member of the public to their religious order. Andrea felt herself freeze under
+their intense gaze, unsure how to proceed. She desperately wanted to pull her gun, unloaded as it was, and brandish it
+in front of herself to get these bipedal insectoids out of her way and just get home. She was halfway through reaching
+into her pocket when the person she'd almost ran over turned to face her and spoke.
+
+"I'm so sorry, I should really get out of the way." He said, **adopting** a jovial and well meaning tone.
+
+She stopped to look at the man addressing her and saw to her continued horror that he was wearing a black suit with a
+priests collar. Instead of the aged beetle of a human the acolyte had been, this man was middle aged, and very well
+kept. He had clean cut hair, jet black, was cleanly shaved, and was tall and upright.
+
+"My bad, I just need to get home" she hurriedly said, slowly stepping away.
+
+"Of course, it's been a busy night for all of us and I'm sure you're no exception." He said, but made no effort to move,
+or direct the others. "Oh, I see you've met acolyte Jacob. Did he tell you anything about us? Our mission and purpose
+perhaps?"
+
+Andrea nodded in the affirmative, keeping her eyes on the well dressed man, but distinctly aware of a large number of
+paired pin sized reflections tracking her from behind him. She took a smaller step back, and feigned adjusting her
+jacket while slowly reaching for her sidearm.
+
+"He probably didn't do it justice, allow me introduce myself. I am reverend Desmond Smithson."
+
+He held out a hand, and Andrea narrowed her eyes at him.
+
+"Pay no mind to the acolytes." He said, deftly turning his failed negotiation into a sweeping gesture. "They're just
+here to help me find someone. We seem to have lost them in this maze of a building."
+
+Andrea's fingers were brushing up against the handle of her pistol. Even with the holster jammed between her arm and
+side, she knew she could make a smooth pull if they tried anything. She was tense. There were a lot of them, more than
+she could handle even if she had ammunition. Maybe she could bluff her way out.
+
+Playing back what the reverend had said, something clicked. She inadvertently cocked her head, mulling it over.
+
+"Have you seen someone wandering around? They'd stand out of course. Talking nonsense about who knows what." reverend
+Desmond said, pressing her for an answer.
+
+"Does this missing person have a name?" Andrea finally answered. She had the pistol firmly grasped now, and didn't care
+that it was obvious. The revered seemed more interested than afraid, clearly willing to ignore her obvious threat, in
+favor of pumping her for information. Well two could play this game, she thought. She wanted to find out what this cult
+was really after. "Or are you just snatching up desperate candidates for your cult?" she quickly added, her temper
+flaring again.
+
+"I assure you, all our members are willing participants. You can't force religion on people. They never take it to heart
+that way. Our flock is open to skeptics and curious alike" reverend Desmond continued. "We've cultivated a culture of
+openness and growth that rivals all the other institutions. It's not a competition, but I'd wager we'd win in that
+respect." he gloated
+
+"I'm sure" Andrea was getting tired of this. She had barely held it together for the single acolyte, let alone this
+group and their charismatic reverend. She took a bigger step back this time, and the group behind reverend Desmond
+fanned out, faster than she would've thought possible for anyone of that rigor. The sudden inhuman skittering fanout,
+made her heart jump, and she reflexively pulled her gun to bear on the reverend.
+
+One hand on her gun, the other at her side, she felt quite the statement. To her surprise the man didn't so much as
+flinch. Something was off. She could feel the hairs on her neck rising, and a sinking feeling rose from her stomach to
+her heart. Somehow she'd wandered into something much more dangerous than she could've predicted.
+
+"I assure you, that isn't necessary. We were just about leave anyways." The reverend calmly said, ice in his voice.
+
+The facade had fallen. His true self had become visible for only a moment, but it chilled Andrea all the same. The ice
+in his voice, and the chill in his body language had been enough. The warm conversation had now frozen over. The
+reverend tapped his leg twice, and the hodden figures relented their boring stairs. Andrea saw them turn in unison away
+from her and make for the hallways leading out towards the habitation units of this floor.
+
+"I don't know his name, but he is dangerous." Reverend Desmond said, the chill still in his voice. "If you do see
+someone who doesn't belong, let us know. He'll be better for it." and without another word, he turned away and followed
+one of the acolytes in the opposite direct from her.
+
+She stood there, dumbfounded, gun pointed at nothing. Her brain had trouble making sense of it all. She let her arm fall
+to her side, still clutching the gun. She took a deep breath and reset herself. This was not the time to be soft.
+Centering herself, she turned and headed towards her unit. She kept her gun lowered, refusing to get caught up in
+anything else today.
+
+She traveled the winding hallways towards her unit. She checked the corners along the way, wary of any more church
+members who might be laying in wait. The cold concrete walls and floors combined with the colder LED lights did nothing
+to assay her fears. Passing steel doors at a quickening pace, she felt every shadow watch her, unseen eyes tracking her
+movements. Once she thought she saw a pair of pinpoint reflections, like those of underneath the hoods of the acolytes.
+She had broken into a slow trot, and then a run. All this time and she had yet to see a single other tenant. Nobody is
+the halls. Even the temperature had dropped, the perpetual warmth of tightly packed bodies had been transformed into a
+cold unfeeling vacuum.
+
+At the last corner Andrea fumbled her free hand awkwardly across her body to get her keycard out. She kept her gun
+leveled down the hall, as she coordinated her feet forwards, and her hand inside her pocket. She got to her door, an
+cold identical steel with only her unit number as it's defining feature. She slapped the reader next to it with her card
+and it registered on the first try. A faint tick, and she used her gun hand to pull the handle down and shove the door
+open.
+
+She slid across the door, rather than open it all the way, and quickly, but quietly, closed it. She dropped her gun, and
+made for the shelf where she kept her holdout stash.
