@@ -3,7 +3,7 @@ title: Empty space
 description: intro Peter, and Kane
 ---
 
-> UNII Corps log date 2327-09-25-09-00: Incident report, immediate summons required for all HEAD-SERVICE members.
+> UNII Corps log date 2327-09-25-0900: Incident report, immediate summons required for all HEAD-SERVICE members.
 
 "Floor 65", Peter barked.
 
@@ -170,5 +170,5 @@ everything hen could do to hold onto his own sense of self. He struggled to feel
 table he was lying on felt far away, the shackles lighter than anything he could imagine. He was almost completely gone
 now. Nothing was keeping him here anymore. Then his world collapsed into a single point, and he felt cold.
 
-> UNII Corps log date 2327-09-25-023-00: Incident resolved. Redact records, and retract pay through the usual back
-> channels for designated employee #76502309. Contact HR to assign designated stand-in until position can be filled.
+> UNII Corps log date 2327-09-25-2300: Incident resolved. Redact records, and retract pay through the usual back
+> channels for designated employee #765023009. Contact HR to assign designated stand-in until position can be filled.

@@ -3,6 +3,8 @@ title: best laid plans
 description: Andrea puts together the pieces, and meets the new version of Hector
 ---
 
+> UNII Corps log date 2327-09-30-0232
+
 "Goddammit!" Andrea yelled.
 
 This guy had pitched forward and was now unconscious. He lay there in the pouring rain, a wet and crumpled lump of

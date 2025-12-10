@@ -3,6 +3,8 @@ title: the meeting
 description: Meet Hector, Hector meets Peter
 ---
 
+> UNII Corps log date 2327-09-29-1048
+
 Hector's world slowly came back into focus. Consciousness leaked back into his body. It started in his hands and feet,
 and slowly moved up into his arms, legs, and shoulders. Eventually it reached his head. It slowly self assessed and
 confirmed he was alive and mostly intact. Hector slowly opened his eyes and squinted as the light seeped in. His vision
@@ -686,6 +688,6 @@ heart was racing, and his blood was hot now. He could feel the adrenaline pumpin
 In one smooth motion he turned the corner, roaring as load as he could, holding the pipe high for a quick blow to the
 head. There was a crouched figure facing into the corner, not looking towards him. He could not tell its gender, but it
 was covered in a hooded cloak. For a split second Hector thought he heard whispering, then the figure turned towards
-him. He was charging full tilt and cound't make out a face, but he saw the eyes. They were two points of light and
+him. He was charging full tilt and couldn't make out a face, but he saw the eyes. They were two points of light and
 darkness, somehow both at once and somehow swirling within the sockets. As soon as he looked fully into those orbits,
 Hector's world exploded.

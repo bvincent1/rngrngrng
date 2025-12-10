@@ -3,6 +3,8 @@ title: nobody knows anymore
 description: Arthur gets a job, things don't go according to plan
 ---
 
+> UNII Corps log date 2327-09-29-2224
+
 "Ding Ding".
 
 Arthur heard the chime.
