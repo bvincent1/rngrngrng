@@ -5,11 +5,11 @@ description: Arthur gets a job, things don't go according to plan
 
 > UNII Corps log date 2327-09-29-2224
 
-"Ding Ding".
+_Ding_ _Ding_
 
 Arthur heard the chime.
 
-"Ding ding"
+_Ding_ _Ding_
 
 This time he acknowledged it and reach over for his phone on the sill.
 
