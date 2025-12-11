@@ -248,4 +248,61 @@ and it registered on the first try. A faint tick, and she used her gun hand to p
 open.
 
 She slid across the door, rather than open it all the way, and quickly, but quietly, closed it. She dropped her gun, and
-made for the shelf where she kept her holdout stash.
+made for her holdout stash. Her kitchen light was on, and illuminated the empty room. She ran headlong across her living
+room to the door to her office. Careening off the doorframe at an oblique angle and stumbling towards the closet at the
+end of the room. She only bothered with one of the double doors and reached inside the dark shelving to grasp a handle
+that she knew would be there. Her hand grasped empty air, and she audibly cursed. She abandoned fumbling in the dark,
+and turned to wall switch. Her movement turned her enough that she dared to peak at the doorway she'd burst through
+moments ago. She couldn't explain why she was so scared. Something about her day had pushed her to the breaking point.
+Maybe it was everything combined, followed up by this whole ordeal with the cult that had her so off balance.
+
+She turned to inspect the doorway, and for a moment there was an outline she couldn't explain. A split second later her
+hand found the light switch and light flooded the closet, **shying** the shape away. Andrea whipped her head back around
+and saw the shotgun handle inches from where she had grasped for it. She cursed herself again, grabbed the handle and
+pulled it out while spinning around as fast as she dared. Her spin brought her face to face with nothing. She leveled
+the gun with her other hand, and racked the slide. It made a satisfying _chunk_ noise, and she immediately felt better.
+
+She stood there, gun leveled at the doorway leading back into her living room. The closet light spilled out from behind
+her, half blocked by the sliding door on the opposite side, and illuminated her desk. She swept the gun away from the
+door and towards her desk, eying the chair that faced away from her. She took a single step towards it. She turned the
+gut back towards the doorway, contemplating the absurdity of her whole situation.
+
+Abandoning caution, she covered the three steps to the chair and kicked it from behind into the desk. She judged by the
+give that it was empty, and the noise of the crash meant that there was nothing under the desk. Turning towards the
+door, she closed the gap to the wall and then took a single step away and leveled the gun at chest height. She paused
+for a split second, took a deep breath, and then smoothly stepped out from her office.
+
+She leveled the gun at her front door, expecting it to be magically open with one of those insectoid people framed in
+the doorway. The door was not open, and she turned to her bedroom, refusing to let her fears go just yet. Something at
+the back of her mind wouldn't let it go. Ignoring yet again the absurdity of it all, she walked across her living room,
+gun raised, stepping onto and then over her couch. She covered the distance in less than four steps and set up next to
+the doorway. Just like she had just done, she swept into the room checking each corner, and then settling on the
+bathroom door. It was closed, which she assumed was how she'd left it, but she couldn't be sure. She reached for the
+handle with her free hand and grabbed it. She counted down in her head, and at the bottom of the count swung the door.
+She waited a heartbeat, and then spun through the opening, repeating her sweep across the tiny room. It was empty, but
+she flicked the light on just to be sure. She was momentarily blinded before her eyes adjusted and she saw to her
+satisfaction that the room ws empty, and that everything was how she had left it.
+
+She let out a breath she'd forgotten to release on her way into the room and relaxed. She lowered her shotgun and
+stepped towards her bathroom mirror. She wanted to get a good look at herself. Maybe she'd have some visible chunk of
+her skull missing to explain this insane behavior she was exhibiting. She stood there, taking it all in. She was whole,
+no cuts, no bleeding from her head. Her black hair was had loosened from the bun she'd tied and her eyes were bloodshot
+and had dark circles under them. She tried to focus on the bags but felt dizzy all of a sudden and she thought she
+imagined the reflection turning to static. She forced herself to focus, ignoring the dizziness and her image returned to
+normal. She let out a sigh, looked down at her gun and thumbed the safety. She unloaded the round she'd chambered
+earlier, and inserted it back into the magazine. She checked it over, before slinging it across her arms, and walking
+back into her living room. She took stock of the mess she'd made, paying careful attention to the prints her boots had
+left on her floor, and in her couch material. She thought about putting the gun away, but decided against it just yet.
+She walked towards her front door and untied her boots. Flipping them off, and retrieving her discarded pistol and
+holster. She tucked it back into the holster and left it on her kitchen counter. She emptied her pockets into the
+receptacle next to the door and removed her soaking jacket and scarf. Andrea forwent turning on more lights, favoring
+the kitchen light and it's warmth over the cold clinical overhead lighting. She made her way to her kitchen cupboard,
+keeping the shotgun slung in her offhand. She reached up to her cupboard and revealed the contents. Inside was a pair of
+tumblers and a bottle of whisky. With a practiced hand she nimbly held the glass and bottle together and lowered them to
+the counter.
+
+"I'm treating myself today, tomorrow I'll have to deal with the office" she said to herself.
+
+She unscrewed the cap and poured a pair of fingers worth into the glass. She left returned the cap, and reached for the
+freezer door. She pulled out her ice tray and awkwardly cracked a pair of icecubes loose while handling her gun. Fixed
+drink in hand, she walked to her couch and let herself collapse into it.
