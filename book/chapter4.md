@@ -384,7 +384,75 @@ and Andrea saw the wound she had made. Hood decimated, she saw his head had spli
 inside. His skin was pale, practically grey, and she could see that she caved in half his head from eye to jaw. He stood
 there, motionless. He hadn't moved except to tell her not to kill him. She took a step closer. He didn't collapse, and
 he didn't bleed all over her floor. She took another step closer, her gun almost touching the man. His eye, the only one
-left, tracked her and she went to pull the trigger again, but his hand came up and grabbed the barrel. A jolt went
+left, tracked her and she went to pull the trigger again, but his hand jerked up and grabbed the barrel. A jolt went
 through the gun and she yelped, involuntarily letting go of it.
 
-"Don't", the man said, wearily this time, like a great effort had been made on his part.
+"Don't", the man said, wearily this time, clearly exhausted.
+
+"You're dead, you're fucking dead!" Andrea yelled, stepping back even further. She was almost at her breaking point.
+This day, or maybe just this week, had been enough.
+
+He turned his head to look at her, and seemed to notice the gun in his hand. He looked like he'd only just noticed it,
+and was debating using it on her. After a brief pause, he looked up and discarded the gun behind him, much to her
+surprise. She looked down at his feet, feeling the hopelessness sink in. She'd just pumped a round into this mans head,
+and he had basically shrugged it off. Her knees felt wobbly, and she had to fight to keep from collapsing on the floor.
+She looked up, unsure what to expect next. Her jaw opened halfway, and she felt even more hopeless than she had a second
+ago.
+
+The hole she'd punched in his head was healing. She watched in horror as the collapsed skull and tissue unwound itself
+from the interior of his skull. She saw gore twist and unwind, filling gaps that had been carved out by her. Bone
+slithered out from inside his skull, and she heard cracks as the pieces socketed themselves back into place. Finally,
+she watched as the skin at the edges of the wound spark and multiply. It wasn't regrowing, it was rematerializing on his
+face slowly but surely.
+
+"Need your help" he said, shying away from her.
+
+She had a hard time understanding that a man who could rebuild his own skull after receiving a mortal wound would be shy
+about it, but she understood the look he'd given her. She wasn't sure what to do. Her expertise had stopped the moment
+she'd gotten home it seemed.
+
+"How about you get the", she stopped halfway through and paused for a heartbeat. This man was clearly capable, and maybe
+even dangerous. He ws probably some escaped experiment, or like those religious freaks. It snapped together. That suit
+leading those freaks had mentioned they were looking for someone. It had to be this guy. Her brain rapid fired through
+several different scenarios, desperately trying to find ways to turn this to her advantage.
+
+"wwwwhat do you need me for? Clearly you're more than capable on your own", she stalled.
+
+His head jerked back towards her, and she saw the wound was almost completely healed.
+
+"Not important, we need to move", he said. That same distant look again. "It's important that we find him, he's the key
+to solving this."
+
+"Who? What?" Andrea asked, still stalling. "Slow down, how about we start with your name. I'm Andrea.", she gestured to
+herself with both hands, and then reversed the gesture towards the man. "And you are??"
+
+"I'm... I'm Alva... I'm Hector", he said, the words spilling out him half formed. "I am Hector, and I need to find him.
+We need to find him. You can trust me. I can help you."
+
+That was strange, she had been halfway to saying the same thing to this Hector guy.
+
+"I can't help you. You can trust me though", He said.
+
+That was getting creepy. Was Hector somehow reading her thoughts? Andrea couldn't keep up with him and plan her win out
+of this mess. "How are you doing that?" she asked, trying for a different tactic. "How are you healing yourself? Are you
+involved with that church?"
+
+"No" he responded.
+
+"They were looking for you, you know", she continued. "Are you sure you're not supposed to be with them?"
+
+"I don't need them yet, first..." He paused, and turned his head to look out her window. "No I haven't told him, he's
+too..." Hector snapped his head back towards her. "Look Andrea, I need you to trust me. I don't have much time. You need
+to take me to him. The man you found earlier today."
+
+Andrea startled slightly. Suddenly Hector had a drastically different personality. His voice still sounded the same, but
+now he was speaking with a fervor that hadn't been there a second ago.
+
+"I know you can find him. Take me too him, and I'll help you get what you want", Hector continued. "I know you can find
+him."
+
+"Ok, who do you think I can find?", Andrea asked. Just then she heard her phone beep. Hector turned away, and she
+watched him walk towards her door. He stopped in front, and stood there in his motionless pose.
+
+Without taking her eyes off Hector, Andrea fished her phone out of her pocket. She held it level with Hector and thumbed
+the notifications. She saw that her tracker had activated, and that it was on the move.
