@@ -304,5 +304,87 @@ the counter.
 "I'm treating myself today, tomorrow I'll have to deal with the office" she said to herself.
 
 She unscrewed the cap and poured a pair of fingers worth into the glass. She left returned the cap, and reached for the
-freezer door. She pulled out her ice tray and awkwardly cracked a pair of icecubes loose while handling her gun. Fixed
-drink in hand, she walked to her couch and let herself collapse into it.
+freezer door. She pulled out her ice tray and awkwardly cracked a pair of icecubes loose while handling her gun. She
+continued her awkward jamble and dropped the pair of icecubes into the drink with a satisfying clank-crack. She returned
+her ice to freezer, and ignored the stray flakes of of on her counter. Fixed drink in hand, she walked to her couch and
+let herself collapse into it.
+
+She let the gun lean against the cushion next to her and tilted her head back. Despite having her back to the door, she
+took comfort in the solemnity she commanded from her throne. she tilted her head back up and took a sip, savouring the
+rich and peaty flavor. Small droplets of rain pattered on her window and Andrea looked out her window, taking in the
+view. City lights offered dim illumination far bellow her. Their dull **illumnations** constant sources of energy and
+life in the otherwise all consuming lifeless city. Their were no cars, and no trains, just the deep pause before the
+city woke up from it's fitful slumber. Far away steam rose from smaller towers, fading quietly into the wet night air.
+Andrea often looked out her windows and lost herself in the magnitude of it all. She thought back to all the battles
+she'd fought here and how little it meant to the great machine. With or without her, it would toil onwards. The city
+consumed everything. It pulled everything towards it, consuming it and repurposing it for itself. Everyone here was at
+the mercy of it. Some great monster they all paid homage to, each one hopping to stave off being it's next meal for a
+moment longer. The bigger it got, the greater its pull, and the greater the toll it exacted on it's **patrons**.
+
+"Uhhhhgggggg" andrea let out a great sign.
+
+This pondering was taking a toll on her and she felt a wave of exhaustion washing over her. She took another sip from
+her glass, and leaned back again closing her eyes this time. She did not open them for a while.
+
+...
+
+Andrea felt weightless for a second. Not like the classic fitful jerk that would've startled her awake, but a slow sense
+of existing in a space that had no gravity. She felt free here, her limbs floated freely and her mind didn't have the
+usual hum of constant worries and problems. It was blissful. She wanted to stay there forever. Slowly, the feeling
+faded, and she felt the abrasive cushion she had rested her head on. Her neck ached, and she realized she must have
+fallen asleep. She slowly opened her eyes, weary of any blinding sunlight. To her surprise there was none. She carefully
+sat up and looked around herself, dreading having to clean up even more mess, or even accidentally setting off the
+shotgun. She saw her drink was intact, just inches from her hand. Her gun was still leaning up, just outside her reach
+in this position. She grabbed her half finished drink, and felt the glass as room temperature. Her heart sank a degree
+at the wasted spirit. Lifting the glass to her mouth, she paused. She was looking out, expecting to see the city, or
+even the light of a peeking sun on the horizon. It was pitch black out. Andrea felt confused. She'd never seen the sky
+so dark, or even the city.
+
+"Powers out?", she asked herself. But her kitchen light was still on, so it must be everywhere else? That didn't make
+any sense. She stood up and walked over to the window, drink still in hand. She stood at her window looking out, and
+what she saw made no sense. It was an inky void, swirling and moving like some black sheet rippling in the wind. Except
+it wasn't a sheet, and it engulfed the whole building. Andrea pressed her face against the glass, peering down as far as
+she could. She couldn't see anything below her, not even other lights from her building. Just empty.
+
+She pulled away, unsure what to do. She went to grab her phone, check for strange weather notifications, or something on
+the socials. She turned away to grab it when she was speared by a great beam of light. She turned back to the window,
+her heart pounding and her mind frozen in panic. There it was. A hole in the great sheet that engulfed everything. In
+the hole she saw a swirling light, deep inside the inky black. It was pulsing, and she fer her skin start to crawl. The
+light was all she could see, and it made her eyes water, but she couldn't turn away. Fear froze her in place, and her
+brain refused to respond to her baser instincts like "run", "hide", or "do anything but stand here". She was struck with
+the inability to resist it. She could almost hear it, a buzzing just outside the glass.
+
+"Ahh", she let out a half strangled scream and jolted awake. Her hand immediately knocked her drink onto her couch, and
+she groggily cursed herself.
+
+"Fuck me!", she yelled for real this time. The sky had returned to it grungy steam filled state and she willed herself
+into coherence. She stood to get something to sop up the mess, but she swayed, steadied herself, and forced herself into
+a capable state. She turned and looked up to her kitchen. This time she didn't scream.
+
+There was a figure. It was human, but covered in a cloak made from a torn piece of tarp. The figure had the hood drawn,
+covering their face, but Andrea could tell it was a man. He stood motionless, frozen just like her. For a second she
+thought it was one of those freaks from earlier, but this was different. Underneath his tarp he wore rags and was
+covered in mud. He was hunched but not from age. She had locked eyes with him, and he had locked eyes with her. His eyes
+weren't pins of pale reflections, but dull and almost half out of focus. He was looking directly at her, but she felt he
+was somehow looking past her.
+
+She took a half breath, careful not to break eye contact.
+
+"Don't", the mans said, steadily.
+
+It was too late. Andrea had half dove, half crouched to the gun resting on the couch. The barrel was already pointing in
+roughly the right direction, she just had to flip it over, thumb the safety, pump the handle, and pull the trigger. It
+was a lot of things to do in series, and a less experienced person would've fucked it up. She was better than that. In
+one smooth motion she did all that, and a deafening _boom_ erupted from the barrel. She caught the intruder across the
+face, putting a huge tear in his tarp, and scoring a direct hit across the side of his head. The wall behind him
+exploded, and dust washed down onto him. Ears ringing, Andrea racked the slide again, and raised the gun to her
+shoulder. The dust obscured her view, but she could see he was still standing. Rather than blindly pump another round
+she waited for the dust to clear, figuring his body had yet to fully recognize it's own death. The dust slowly ceded,
+and Andrea saw the wound she had made. Hood decimated, she saw his head had split open, revealing the obliterated gore
+inside. His skin was pale, practically grey, and she could see that she caved in half his head from eye to jaw. He stood
+there, motionless. He hadn't moved except to tell her not to kill him. She took a step closer. He didn't collapse, and
+he didn't bleed all over her floor. She took another step closer, her gun almost touching the man. His eye, the only one
+left, tracked her and she went to pull the trigger again, but his hand came up and grabbed the barrel. A jolt went
+through the gun and she yelped, involuntarily letting go of it.
+
+"Don't", the man said, wearily this time, like a great effort had been made on his part.
