@@ -181,7 +181,7 @@ Andrea nodded in the affirmative, keeping her eyes on the well dressed man, but 
 paired pin sized reflections tracking her from behind him. She took a smaller step back, and feigned adjusting her
 jacket while slowly reaching for her sidearm.
 
-"He probably didn't do it justice, allow me introduce myself. I am reverend Desmond Smithson."
+"He probably didn't do it justice, allow me introduce myself," he paused "I am reverend Desmond Smithson."
 
 He held out a hand, and Andrea narrowed her eyes at him.
 
@@ -190,7 +190,7 @@ here to help me find someone. We seem to have lost them in this maze of a buildi
 
 Andrea's fingers were brushing up against the handle of her pistol. Even with the holster jammed between her arm and
 side, she knew she could make a smooth pull if they tried anything. She was tense. There were a lot of them, more than
-she could handle even if she had ammunition. Maybe she could bluff her way out.
+she could handle even if she had ammunition.
 
 Playing back what the reverend had said, something clicked. She inadvertently cocked her head, mulling it over.
 
@@ -219,16 +219,17 @@ her heart. Somehow she'd wandered into something much more dangerous than she co
 
 "I assure you, that isn't necessary. We were just about leave anyways." The reverend calmly said, ice in his voice.
 
-The facade had fallen. His true self had become visible for only a moment, but it chilled Andrea all the same. The ice
-in his voice, and the chill in his body language had been enough. The warm conversation had now frozen over. The
-reverend tapped his leg twice, and the hodden figures relented their boring stairs. Andrea saw them turn in unison away
-from her and make for the hallways leading out towards the habitation units of this floor.
+The warm conversation had now frozen over. His true self had become visible for only a moment, but it chilled Andrea all
+the same. The ice in his voice, and the chill in his body language had been enough. The reverend tapped his leg twice,
+and the hodden figures relented their boring stairs. Andrea saw them turn in unison away from her and make for the
+hallways leading out towards the apartment units on this floor.
 
-"I don't know his name, but he is dangerous." Reverend Desmond said, the chill still in his voice. "If you do see
-someone who doesn't belong, let us know. He'll be better for it." and without another word, he turned away and followed
-one of the acolytes in the opposite direct from her.
+"I don't know his name, but he is dangerous." Reverend Desmond said, the chill still in his voice. He was fishing
+something out from his pocket. "If you do see someone who doesn't belong, let us know. It'll be better for everyone", he
+held up a business card, in front of his face and dramatically let it fall to the ground. Without another word, he
+turned away and followed one of the acolytes in the opposite direct from her.
 
-She stood there, dumbfounded, gun pointed at nothing. Her brain had trouble making sense of it all. She let her arm fall
+She stood there, dumbfounded, gun raised at nothing. Her brain had trouble making sense of it all. She let her arm fall
 to her side, still clutching the gun. She took a deep breath and reset herself. This was not the time to be soft.
 Centering herself, she turned and headed towards her unit. She kept her gun lowered, refusing to get caught up in
 anything else today.
@@ -237,9 +238,9 @@ She traveled the winding hallways towards her unit. She checked the corners alon
 members who might be laying in wait. The cold concrete walls and floors combined with the colder LED lights did nothing
 to assay her fears. Passing steel doors at a quickening pace, she felt every shadow watch her, unseen eyes tracking her
 movements. Once she thought she saw a pair of pinpoint reflections, like those of underneath the hoods of the acolytes.
-She had broken into a slow trot, and then a run. All this time and she had yet to see a single other tenant. Nobody is
-the halls. Even the temperature had dropped, the perpetual warmth of tightly packed bodies had been transformed into a
-cold unfeeling vacuum.
+She herd a click, and felt a cold breeze on her neck. She broke into a slow trot, and then a run. All this time and she
+had yet to see a single other tenant. Nobody is the halls. Even the temperature had dropped, the perpetual warmth of
+tightly packed bodies had been transformed into a cold unfeeling vacuum.
 
 At the last corner Andrea fumbled her free hand awkwardly across her body to get her keycard out. She kept her gun
 leveled down the hall, as she coordinated her feet forwards, and her hand inside her pocket. She got to her door, an
@@ -265,7 +266,7 @@ the gun with her other hand, and racked the slide. It made a satisfying _chunk_ 
 She stood there, gun leveled at the doorway leading back into her living room. The closet light spilled out from behind
 her, half blocked by the sliding door on the opposite side, and illuminated her desk. She swept the gun away from the
 door and towards her desk, eying the chair that faced away from her. She took a single step towards it. She turned the
-gut back towards the doorway, contemplating the absurdity of her whole situation.
+gun back towards the doorway, contemplating the absurdity of her whole situation.
 
 Abandoning caution, she covered the three steps to the chair and kicked it from behind into the desk. She judged by the
 give that it was empty, and the noise of the crash meant that there was nothing under the desk. Turning towards the
@@ -454,5 +455,12 @@ him."
 "Ok, who do you think I can find?", Andrea asked. Just then she heard her phone beep. Hector turned away, and she
 watched him walk towards her door. He stopped in front, and stood there in his motionless pose.
 
-Without taking her eyes off Hector, Andrea fished her phone out of her pocket. She held it level with Hector and thumbed
-the notifications. She saw that her tracker had activated, and that it was on the move.
+Without taking her eyes off Hector, Andrea fished her phone out of her pocket. There was a business card stuck to the
+rear of it. Andrea twisted her hand around, puzzled. Her blood ran cold as she slowly read the title in bold serif font.
+
+> Church of Evolution
+
+Her blood ran cold. She had no clue how that had gotten there. Her phone buzzed again, imploring her to check on it. She
+twisted her hand back and held her phone level with Hector and tapped the screen to check her notifications. She saw
+that her tracker had activated, and that it was on the move. Her brain cycled several ideas at once, but the most
+important one came last. That idea was her solution to all this mess.
