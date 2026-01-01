@@ -29,7 +29,7 @@ jobs:
         run: make format
 
       - name: Update word counts
-        run: make counts
+        run: make ./counts.txt
 
       - name: ⬆️ Commit Formatted Files
         # Action to automatically commit and push any changes made by the previous step
