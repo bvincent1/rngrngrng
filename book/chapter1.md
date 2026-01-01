@@ -3,7 +3,7 @@ title: Empty space
 description: intro Peter, and Kane
 ---
 
-> UNII Corps log date 2327-09-25-09-00: Incident report, immediate summons required for all HEAD-SERVICE members.
+> UNII Corps log date 2327-09-25-0900: Incident report, immediate summons required for all HEAD-SERVICE members.
 
 "Floor 65", Peter barked.
 
@@ -148,16 +148,17 @@ nervousness. Not an inch.
 Then he heard a noise from the machine in front of him. For a second he thought it had turned on by itself, but rejected
 that nonsense. It had been remotely activated, and was now going through some diagnostic or whatever machines like this
 did when they were turned on. He heard some screeches and burps come from it, and the speakers that were connected let
-out a faint hum. Whatever it was doing, it had power and it was ready now. It was slow at first. Peter didn't know if
-the volume or the speed had increased, but he could faintly make out noises coming from the speaker. The noises were
-almost imperceptible at first. Just faint hisses, or crackles that almost merged with the low whines of the lights or
-the beating of his heart. He tried to steady himself, tensing against some assault that must be coming. He'd be blasted
-with words or noises any second and then he'd have to block it out. He waited. He waited some more. His breathing was
-regular, and he could feel time ticking away, but there was nothing. He listened closer now, unsure what to expect. The
-noises were just beyond his capabilities. And then they weren't. He heard some clicks, and then a hiss and suddenly he
-could make out the noises. They were random. It was just white noise. There was no meaning to it. He found he no longer
-had to strain to hear it, and he relaxed in his bonds. He looked up at the ceiling, and the dimmed fluorescent lights
-that cast diffused hues of white and yellow across the room.
+out a faint hum. Whatever it was doing, it had power and it was ready now.
+
+It was slow at first. Peter didn't know if the volume or the speed had increased, but he could faintly make out noises
+coming from the speaker. The noises were almost imperceptible at first. Just faint hisses, or crackles that almost
+merged with the low whines of the lights or the beating of his heart. He tried to steady himself, tensing against some
+assault that must be coming. He'd be blasted with words or noises any second and then he'd have to block it out. He
+waited. He waited some more. His breathing was regular, and he could feel time ticking away, but there was nothing. He
+listened closer now, unsure what to expect. The noises were just beyond his capabilities. And then they weren't. He
+heard some clicks, and then a hiss and suddenly he could make out the noises. They were random. It was just white noise.
+There was no meaning to it. He found he no longer had to strain to hear it, and he relaxed in his bonds. He looked up at
+the ceiling, and the dimmed fluorescent lights that cast diffused hues of white and yellow across the room.
 
 He felt it. The skin along his spine itched, but starting from the small of his back, all the way to his skull in a
 line. His arms suddenly felt tiny pricks of static, like he was being shocked. He could hear the noise, but it no longer
@@ -170,5 +171,5 @@ everything hen could do to hold onto his own sense of self. He struggled to feel
 table he was lying on felt far away, the shackles lighter than anything he could imagine. He was almost completely gone
 now. Nothing was keeping him here anymore. Then his world collapsed into a single point, and he felt cold.
 
-> UNII Corps log date 2327-09-25-023-00: Incident resolved. Redact records, and retract pay through the usual back
-> channels for designated employee #76502309. Contact HR to assign designated stand-in until position can be filled.
+> UNII Corps log date 2327-09-25-2300: Incident resolved. Redact records, and retract pay through the usual back
+> channels for designated employee #765023009. Contact HR to assign designated stand-in until position can be filled.
