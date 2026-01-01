@@ -1,12 +1,15 @@
 
 COUNT_FILE="./counts.txt"
 
-
 help: ## Show this help
 	@echo "\nSpecify a command. The choices are:\n"
 	@grep -E '^[0-9a-zA-Z_-]+:.*?## .*$$' $(MAKEFILE_LIST) | awk 'BEGIN {FS = ":.*?## "}; {printf "  \033[0;36m%-12s\033[m %s\n", $$1, $$2}'
 	@echo ""
 .PHONY: help
+
+install: ## Install node libs
+	@yarn install
+.PHONY: install
 
 format: ## Format all the *.md files in this repo
 	@yarn run prettier -w ./**/*.md ./*.md
