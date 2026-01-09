@@ -14,7 +14,11 @@ god-like forces that seem to answer to one man.
 
 ## Chapers
 
-0. [signal](./book/chapter0.md)
+0. [archive logs](./book/chapter0.md)
+1. [empty space](./book/chapter1.md)
+2. [the meeting](./book/chapter2.md)
+3. [nobody knows anymore](./book/chapter3.md)
+4. [best laid plans](./book/chapter4.md)
 
 ## License
 
