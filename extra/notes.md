@@ -37,5 +37,5 @@
 ### Ch 2
 
 - intro to outside
-- intro to `Arthur`
+- intro to `Del`
 -
