@@ -20,6 +20,36 @@ the god-like forces that seem to answer to one man.
 3. [nobody knows anymore](./book/chapter3.md)
 4. [best laid plans](./book/chapter4.md)
 
+## Formatting
+
+**sounds**
+
+_internal thoughts_
+
+> reader only information
+
+<!-- internal comment -->
+
+[^1] footnote
+
+[^1]: footnote text
+
+// todo: things I intend to touch up
+
+### Reference
+
+```
+**sounds**
+*internal thoughts*
+> reader only information
+<!-- internal comment -->
+
+[^1] footnote
+[^1]: footnote text
+
+// todo: things I intend to touch up
+```
+
 ## License
 
 This is an open source book project. It's being written in the open under a CC license so anyone can read it and
