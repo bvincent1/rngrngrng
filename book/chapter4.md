@@ -4,6 +4,7 @@ description: Andrea puts together the pieces, and meets the new version of Hecto
 ---
 
 > UNII Corps log date 2327-09-30-0232
+> 1 minute later
 
 "Goddammit!" Andrea yelled.
 

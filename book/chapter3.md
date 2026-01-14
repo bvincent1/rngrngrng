@@ -1,25 +1,26 @@
 ---
-title: nobody knows anymore
-description: Arthur gets a job, things don't go according to plan
+title: slipped right through
+description: Del gets a job, things don't go according to plan
 ---
 
 > UNII Corps log date 2327-09-29-2224
+> 6 hours later
 
 _Ding_ _Ding_
 
-Arthur heard the chime.
+Del heard the chime.
 
 _Ding_ _Ding_
 
 This time he acknowledged it and reach over for his phone on the sill.
 
-"You awake?" A chipper female voice asked.
+"Sup Del, You awake?" A chipper female voice asked.
 
-"Wasn't asleep." He lied back to her.
+"Wasn't asleep." He lied back to her. His voice sounded grumpier than he'd meant.
 
 "Good, 'cause I have a job for you." She responded, omitting any comments on wether or not she believed him.
 
-Arthur sat up quickly, willing himself to be awake. He needed this job, but he didn't want to sound too desperate. He
+Del sat up quickly, willing himself to be awake. He needed this job, but he didn't want to sound too desperate. He
 had his pride to protect.
 
 "Order just came in. Need you to find someone. Her name is Lili Kant."
@@ -37,7 +38,7 @@ always nice that way. Rikki was a dispatcher, and lately he'd been getting most 
 aware that she worked from home and that she was mostly a tech specialist who'd doubled into finding work online for
 people like him. He'd yet to meet her in person, but she seemed nice enough the way she talked to him and treated him.
 
-Arthur watched as the app opened and the route loaded onto the map. A line connected between him and the dot where the
+Del watched as the app opened and the route loaded onto the map. A line connected between him and the dot where the
 address was. He studied the map's directions, then pocketed his phone. He jumped into his boots on the floor at the edge
 of his bed and reached for his stash of gear. Pocketing most of it, he searched for his jacket and found it on the floor
 were he'd foolishly discarded it. Pulling it over his arms and smoothing the fit, he did one last check of his tiny
@@ -50,8 +51,8 @@ on things he'd been slacking on.
 
 He pushed the stairwell door open and emerged into the early evening air. He started walking towards the nearest rail
 station. He wasn't more than a block away from a station, so he knew he'd make good time. Emerging onto a main street
-from the alley behind his building, people passed on his left and right, and Arthur did his best to ignore all of them.
-Even though it was late, there was always people moving from one place to another. Arthur liked watching them from his
+from the alley behind his building, people passed on his left and right, and Del did his best to ignore all of them.
+Even though it was late, there was always people moving from one place to another. Del liked watching them from his
 window, he liked imagining what reasons people had to be out and about if they weren't like him. At the doors to the
 rail station he heard an chime, and he paused his rush so he could focus and listen. The prerecorded voice announced
 that his train would arrive shortly. He stepped faster than he'd have liked in order to make it in time. Steps flew
@@ -59,12 +60,12 @@ past, and corners blurred as he half walked, half jogged to make it. He arrived 
 minute to spare. He was slightly out of breath, and felt his blood pumping from the exertion. He tried to slow his
 breathing, and get his heartbeat back to a relaxed speed. Slow was smooth, smooth was fast. Breathe.
 
-Despite the late hour, the train was not empty. He had to walk towards the back to find a seat. Arthur sat heavily in a
+Despite the late hour, the train was not empty. He had to walk towards the back to find a seat. Del sat heavily in a
 window seat and turned to look out at the far side of the tunnel wall, blurring past him.
 
-Arthur found he was feeling solemn about the state of things. He felt like he and everything around him was on the brink
+Del found he was feeling solemn about the state of things. He felt like he and everything around him was on the brink
 of collapsing. Mostly he blamed the megacorps for their collective predicament. The 'corps were too busy and greedy to
-notice that they were eroding the very soil they built on. Arthur saw the people pushed to the brink by policies and
+notice that they were eroding the very soil they built on. Del saw the people pushed to the brink by policies and
 monetizations resort to fighting everyone they could just to hold on. Some chose to fight the megacorps, but those
 people soon found out that military contracts were a core investment, and by consequence those victims were promptly
 squashed by overpowered military might. Other people, perhaps the marginally smarter ones, chose to fight each other.
@@ -80,9 +81,9 @@ they just wanna know where the perp went. Don't get involved, don't cause a scen
 pocketed his phone. A few minutes later, he got out, and ascended from the underground rail. It had started raining
 slightly on his way over, and small droplets pattered on the glass windows and concrete walls just outside the station.
 He pulled up his hood and collar, crossed the building threshold out into the street and started towards the address. He
-walked briskly and with purpose, trying his best to project an attitude of 'don't fuck with me'. Arthur found that
+walked briskly and with purpose, trying his best to project an attitude of 'don't fuck with me'. Del found that
 attitude made up a big part of separating those whom did get into trouble and those whom did not. Despite the violence,
-weapons were fairly simple. Guns were semi-common, but more often attackers would use blunt tools. Arthur himself
+weapons were fairly simple. Guns were semi-common, but more often attackers would use blunt tools. Del himself
 carried an extendable rod, preferring the low profile approach to violence. Before all this, he'd joined the military,
 and to his surprise been appraised as an expert scout. His natural tendency for stealth, combined with his perfect sense
 of direction had helped him get noticed early on in his training. He'd been destined for a role in the
@@ -93,7 +94,7 @@ from behind the corner to peer around the corner for the target building.
 
 The street was flanked with rows of skinny midsize rises, each about 3 to 5 floors high. The street itself was bare
 except for a few scraps of trash littering the steps of the various rises. There were no cars, and no people which felt
-a bit odd. The rain had probably pushed everyone to leave for shelter. Thin gaps separated the buildings, that Arthur
+a bit odd. The rain had probably pushed everyone to leave for shelter. Thin gaps separated the buildings, that Del
 was certain concealed tired and restless people, waiting for fairer weather, or for helpless victims to pass. He checked
 the address again and confirmed that 'Lili' lived on the 3rd floor of the middle building across from him. He pulled out
 his phone and messaged Rikki "Which room is hers? Perspective from the outside front of the building", and then pocketed
@@ -112,7 +113,7 @@ a bit, but it was enough. He reached out and his fingers made contact with the r
 the can clattered with a resounding bang. Turning slightly he swung his other hand up to make contact and strained his
 muscles to pull himself up.
 
-Arthur underestimated how much effort this was taking him. He pulled himself up, and remembered the endless exercises
+Del underestimated how much effort this was taking him. He pulled himself up, and remembered the endless exercises
 and training he'd undergone. The screams and yells of instructors and fellow recruits flooded his memories as he muscled
 up to the next bar. He made it up, and up, and before he knew it he was huffing on the metal grating of the first
 landing. He took a moment to catch his breath as best he could, but he didn't want to stay longer in case that noise had
@@ -134,14 +135,14 @@ ones, but at least they'd be slow to stir, or just simply ignore anything in fav
 could. The entire thing was uninspired blocky architecture, and made with the same concrete that every construction
 company used. The rooms themselves all had one unified balcony with divider walls separating each unit's alloted space.
 Their were tarps covering boxes on several of the balconies, and the others had a an odd chair, or were empty. The rain
-was coloring the concrete a darker grey, and combined with the wind was making a decent noise. Arthur relaxed a bit
+was coloring the concrete a darker grey, and combined with the wind was making a decent noise. Del relaxed a bit
 since this meant he'd go completely unnoticed. Nothing to see here, just another pill of trash huddled against the
 elements. He tried not to feel to literally about it.
 
 Pulling the monocular away, he leaned forwards and pulled his phone out, careful not to get it wet. Hunched over his
 phone, he dimmed the screen and checked for any replies from Rikki. She had responded with "3rd floor, far left". He
 pocketed his phone and pulled his monocular back up to his face to better examine the target unit. The monocular didn't
-have anything like a camera, night vision, or thermal imaging. Arthur had mostly used it recon, and didn't have the
+have anything like a camera, night vision, or thermal imaging. Del had mostly used it recon, and didn't have the
 money to invest in something like that. He'd once had to take pictures through it via his phone, but that was the most
 technical he'd had to get. He slowly worked the focus and zoom until he could see into the unit via the balcony door and
 window.
@@ -162,16 +163,16 @@ looked like it jutted out slightly further than the target. If he could get onto
 balcony. There was only 1 floor height between the neighbor's roof, and the 3rd floor balcony. But how would he get onto
 that neighboring roof?
 
-He turned to face the neighbor straight on, and squinted to try and see past the rain whipping around. Arthur was one of
+He turned to face the neighbor straight on, and squinted to try and see past the rain whipping around. Del was one of
 the few people left that didn't need glasses these days, as eyesight had gotten generationally poorer. Despite his above
 average eyesight, he couldn't make out much. He was about to reach for the monocular, when he spotted it. Without
 removing it from his pocket, he checked the time on his phone. Still good. He scuttled towards the edge of the building
 he'd climbed and looked down. It was pitch black between the buildings, and he couldn't see the bottom in that gap. It
-was pretty close between the two, but if he fell, that'd be it for him. Arthur backed up from the edge and squared up to
+was pretty close between the two, but if he fell, that'd be it for him. Del backed up from the edge and squared up to
 his target. He took a few breaths, and wiped his hands on the insides of his jacket to try and dry them off. They felt
 clammy and slick. He'd be pushing his luck with this one. In three steps, he closed the gap and leapt.
 
-Arthur felt weightless in the air, like he'd be able to jump across the whole street if he had tried. His arms were up
+Del felt weightless in the air, like he'd be able to jump across the whole street if he had tried. His arms were up
 and reaching. He'd angled his approach and used the balustrade as a boost to do this. That trick had gained him the
 extra feet he needed to make this work. All too quickly his outstretched hands slapped against the cold plastic of the
 cabling, and he grabbed hold with all his might. He quickly swung his other arm to grab hold as well. He felt his
@@ -185,14 +186,14 @@ backlighting him someone would have surely noticed. He didn't have to worry abou
 concentration to grab the cable. Hand over hand, he climbed forwards. He was only about halfway before he found a flaw
 in his plan. The cable he was climbing across, like some playground equipment from his childhood, was sagging. He didn't
 know what exactly it's purpose was, but clearly the installation engineer had not prepared it to support the weight of a
-full grown man. Arthur knew it was too late to back down, so he kipped up and pulled his legs up onto the cable. Taking
+full grown man. Del knew it was too late to back down, so he kipped up and pulled his legs up onto the cable. Taking
 the weight off his arms, left him more strength to focus on his grip. His willpower was strong, and that what mattered.
 He pulled instead of swung now, and did his best to ignore the growing pain in his shoulder and the cold seeping into
 every part of his body. This maneuver had opened him up to the elements on a whole new scale. His jacket was hanging off
 him by the shoulders, and the rain was hammering his face. His hands would go numb soon, and when that happened, he
 would be done for.
 
-Hand over numbing hand, Arthur pulled himself along the cable until he reached the opposite building. He wedged his
+Hand over numbing hand, Del pulled himself along the cable until he reached the opposite building. He wedged his
 shoulder right up against the concrete and reached up onto the roof. The concrete was even colder than the plastic and
 he struggled to find purchase. Pulling himself overtop the cable, he could now see the roof and use his other hand to
 drag himself over the lip, and onto the flat, graveled roof. He hauled himself into a crouched position on his knees.
@@ -213,25 +214,25 @@ had to drop into. He breathed in and out, and on the third breath he started at 
 second judged how much to kick off the edge of his building. For the second time that day he felt weightless and strong.
 He was flying through the rain, totally in control of his body and his goal. He could only imagine what sort of sight he
 must be from the ground. His dream of cool success came barreling into his chest with the balcony floor as he half
-rolled, half crashed into the floor. Quickly hauling himself up, Arthur sat crouched in the far corner were he'd landed,
+rolled, half crashed into the floor. Quickly hauling himself up, Del sat crouched in the far corner were he'd landed,
 trying to focus his eyes through the glass sliding door on anything inside. He was sore, but willed himself still,
 blending into the shadows on the balcony to hide. Through the rain speckled glass he could make out the desk and a couch
 better now, and he could see the cooking unit, and the door to the bed room. That door was half open, but he couldn't
 make out anything inside. Breathing in a few times, he unfolded from the corner, and crouch walked over to the bedroom
-window. Arthur paused right before he reached it, and pulled out his phone. He turned on the camera, and inched it into
+window. Del paused right before he reached it, and pulled out his phone. He turned on the camera, and inched it into
 view of the room.
 
 The room was devoid of people, but what he could see left him confused and worried. The bed was clean and had been made,
 and there were no clothes on the floor or mess anywhere he could make out. If Lili had been in a rush, the place
 would've been a mess, but as far as he could tell there were no signs of that. Which meant either Lili was out and would
-be back later, or she'd already been ready to leave. Arthur was worried now. He had to track her down, and people mostly
+be back later, or she'd already been ready to leave. Del was worried now. He had to track her down, and people mostly
 made mistakes when they were rushed. This person had not been rushed, and he really doubted his luck was so good that
 he'd just caught her out on a smoke break.
 
-Arthur pocketed his phone, and took out his baton. He first felt around the edges of the bedroom window, feeling for any
+Del pocketed his phone, and took out his baton. He first felt around the edges of the bedroom window, feeling for any
 purchase. He felt the lip of the outer seal, and tried pulling with his numb fingers. The window didn't budge, so he
 turned and crouch walked the few steps back towards the balcony door. He tried wiggling his fingers into the nearside
-gap, looking to push it open from the outside. He felt it move. Arthur smiled to himself. He angled his baton into the
+gap, looking to push it open from the outside. He felt it move. Del smiled to himself. He angled his baton into the
 seam, and tried to half wedge, half crook the handle into it. It was scratching the metal **edge** but he pushed harder,
 starting to lean into it. He felt it creaking as he slowly overpowered the latch and the door groaned open an inch. Now
 he fully inserted the baton into the gap and wedged it to lever open the door the rest of the way. It let out one final
@@ -244,7 +245,7 @@ anything that would indicate danger, but all he could here was the soft tapping 
 full height, and rolled his sore shoulders, taking a moment to relax and ready himself at the same time. The room was
 dark and quiet, and now that he was standing he could see that it was neat and tidy. He was by far the messiest thing in
 the room, and he was slowly spreading a puddle of water onto the floor. He pulled a mat over and covered the small mess
-he'd made, walked over to the bed room. Arthur held his baton in front of him, low but ready, in case and turned into
+he'd made, walked over to the bed room. Del held his baton in front of him, low but ready, in case and turned into
 the bedroom. It was as clear os the rest of the apartment. He went and checked the bathroom, and saw that while it had
 signs of use, it was also tidy and neat. As far of decoration went, the apartment had a double mattress with plain
 sheets, some basic storage of fake wood cabinets, a cloth couch, and a desk with a desktop plugged in. He went through
@@ -257,23 +258,23 @@ ear, bracing for the emotional damage this was going to do to him.
 
 _Click_
 
-"I need your help" Arthur said, with his eyes closed, his face scrunched up in self disgust, and his gut tightening in
+"I need your help" Del said, with his eyes closed, his face scrunched up in self disgust, and his gut tightening in
 apprehension.
 
 "More than you know." Rikki snapped back, the sarcasm dripping from her tone. "I take it she's not there."
 
-"No. The place is empty and there's not much to go on. But there's a desktop here" Arthur paused for a second. "I figure
+"No. The place is empty and there's not much to go on. But there's a desktop here" Del paused for a second. "I figure
 maybe you could help with that?" He paused for what felt like an eternity. He didn't actually know if she could help
 him, but he knew she was good with computers and software. Maybe she had a solution.
 
 "Is it passw- actually dont answer that." She cut herself off mid statement. "Put me on speaker, and plug me into a
 port."
 
-Arthur did as he was told, and fumbled out a cable to connect his phone to the computer.
+Del did as he was told, and fumbled out a cable to connect his phone to the computer.
 
 "Wait" Rikki said over the speakerphone.
 
-Arthur paused, one end of the cable connected to his phone, the other inches from connecting to the machine.
+Del paused, one end of the cable connected to his phone, the other inches from connecting to the machine.
 
 "Did you already plug in the phone?" She asked.
 
@@ -282,12 +283,12 @@ Arthur paused, one end of the cable connected to his phone, the other inches fro
 "Good, turn off the desktop first, then plug me in, then find the keyboard, turn it on, and then hold down the delete
 key." She paused. "Got all that?"
 
-Arthur paused a second, he was identifying th delete key on the keyboard, even though he'd used one a million times
+Del paused a second, he was identifying th delete key on the keyboard, even though he'd used one a million times
 before. After a second he replied "Got it. I'll let you know when I turn it on"
 
 "Thanks" the woman on the speaker. Then a second later "Wait!".
 
-Arthur's heart rate was spiking from all this constant back and forth. "I'm waiting" He replied, trying to keep his tone
+Del's heart rate was spiking from all this constant back and forth. "I'm waiting" He replied, trying to keep his tone
 calm and cool.
 
 "Remember that app I had you install forever ago? Turn it on, and keep it running before you turn the computer on."
@@ -298,33 +299,33 @@ him and her own stuff was clearly a stretch of her skills.
 
 "Do it" Rikki responded, her voice icy and focused.
 
-Arthur power cycled the machine, and did as he was instructed. He was looking a screen, and then it turned blue with a
+Del power cycled the machine, and did as he was instructed. He was looking a screen, and then it turned blue with a
 bunch of text and some options.
 
 "Let go of the keyboard, and select boot options." Rikki's voice came from the phone.
 
-Arthur did as he was told and carefully inspected the options on the monitor. He found one labeled "Boot options" and
+Del did as he was told and carefully inspected the options on the monitor. He found one labeled "Boot options" and
 clicked it.
 
 "You'll need to use the keyboard" Rikki replied before he could even ask.
 
-Arthur was getting frustrated with this, but he did as he told. A second later Rikki gave him more instructions, and
+Del was getting frustrated with this, but he did as he told. A second later Rikki gave him more instructions, and
 after a couple minutes of back and forth troubleshooting they made progress. Now the screen was flashing with all sorts
-of text and info. Arthur could here loud clacking over the call. Rikki was typing faster than he could even dream, and
+of text and info. Del could here loud clacking over the call. Rikki was typing faster than he could even dream, and
 she was clearly focused. He waited for her inevitable gloating to start.
 
 "So I've found something. But I can't read it." Rikki started, "you see most of the stuff on here is unencrypted, and
 useless. But there's a drive that I can't read. That's probably important. I'm gonna need you to get that and bring it
 to me. I can't copy it from here." Rikki said.
 
-She sounded worn out, despite not actually having done anything nearly as strenuous as what he'd done. Arthur had pulled
+She sounded worn out, despite not actually having done anything nearly as strenuous as what he'd done. Del had pulled
 up a chair and sat quietly while this had gone down. Much to his surprise Rikki's searching had taken longer than it had
 to hack in. He was about to respond to her when he paused. His heart was suddenly beating too loud, and he willed his
 ears to ignore it. He heard scratching coming from the door. He acted faster than he could talk. He ripped his phone
 from the connection, and clenched his first around it in a desperate struggle to power it off without properly finding
 the button. He heard a faint squeak and then nothing from his phone, and the monitor flashed a bunch of corrupted
 letters, then died. He dived behind the far end of the couch just as the door opened, spilling light into the room.
-Arthur desperately tucked himself behind the arm of the couch and thanked god that he'd kept his hood on.
+Del desperately tucked himself behind the arm of the couch and thanked god that he'd kept his hood on.
 
 From his position behind the arm of the couch, he was facing towards the glass door of the balcony. In the reflection he
 could see a figure standing in the brightly lit doorway. They were dressed in loose, but not obstructive black clothing.
@@ -333,10 +334,10 @@ His own reflection didn't show any meaningful shape and instead made him look li
 knowing full well that any movement would give him away. The figure stepped inside, and closed the door without looking.
 The faint click and snap told him they'd locked it behind them. The figure surveyed the room from a standstill and
 paused looking at the doorway to the bedroom. They raised one arm up, and leveled the other underneath it, a small shape
-in their hand. Arthur figured it was a gun of some sort, but he couldn't recognize the type outright from the
+in their hand. Del figured it was a gun of some sort, but he couldn't recognize the type outright from the
 reflection. One careful step after the other, the figure moved towards the bedroom door. They held a low stance, ready
-for a fight. Experienced. Arthur was suddenly very aware of the mess he'd made on the way in. As the figure stepped
-closer and closer, he lost his view in the reflection of the glass balcony door. Arthur had to wait until he was sure
+for a fight. Experienced. Del was suddenly very aware of the mess he'd made on the way in. As the figure stepped
+closer and closer, he lost his view in the reflection of the glass balcony door. Del had to wait until he was sure
 the figure wouldn't see him move. It was agony, but he forced himself to wait , counting the seconds in his head. At the
 bottom of his count he silently shifted from the end of the couch to the front, almost crawling so the figure wouldn't
 be able to see him.
@@ -344,11 +345,11 @@ be able to see him.
 To his credit, he was as silent as a shadow. He made it all the way to the other end of the couch and peaked around the
 corner. From his new point of view he saw the figure had their back turned towards him. From here he could see that they
 were smaller than him. He decided that he could take them in hand to hand. He ducked back behind the couch as the figure
-swept back and forth, clearing the bedroom. Arthur didn't recognize the weapon, but he knew his time was running out. It
+swept back and forth, clearing the bedroom. Del didn't recognize the weapon, but he knew his time was running out. It
 didn't really matter if it was less than lethal or not, either way that'd be the end for him. He looked at the door, and
 tried to imagine if he still had enough time to unlock it and escape into the hallway. He was halfway through his mental
 preparation, when he heard a click from the bedroom. Footsteps followed, quiet, but not silent. The footsteps were
-crossing back out into the living room, but they paused. It was only a few seconds, but to Arthur it felt like an
+crossing back out into the living room, but they paused. It was only a few seconds, but to Del it felt like an
 eternity. He knew it was about to be the moment. The moment when you committed to violence, to confrontation. The moment
 where you had to embrace the darker side, and block out everything else. His pulse quickened as adrenalin flooded his
 veins. His ears started ringing from the sudden pressure change, and he suddenly felt like he had to pant to breath. He
@@ -377,7 +378,7 @@ without trying to seem desperate, he deigned to try a different tactic.
 "Lili, I'm here to help you." he said, breathing hard and holding up a weak hand in front of him. His wrist was
 throbbing and pain was shotting up his sides where she'd landed her kicks. She paused for a second, and he thought she
 even caulked her head to the side, pondering what he'd just said. Before he could keep talking, she reached towards her
-side and went to pull her sidearm. Arthur cursed his bad planning, and his bad judgement. This woman was better than him
+side and went to pull her sidearm. Del cursed his bad planning, and his bad judgement. This woman was better than him
 in every way. She was better equipped, and better trained. He was outclassed and he knew it. She probably knew it too.
 He leapt again at her, intending to pin her arms so she couldn't draw on him. She saw him leap again, and went to block
 him but she slipped. He tumbled into her and missed the grab. She was on the floor and he was only managed to grab her
@@ -393,9 +394,9 @@ He almost loosened up, but he kept digging he boots into the floor, and kept sho
 "Killing me wont get you paid, and I can't exactly claim your her either. So lets just go our separate ways. Clearly
 she's long gone." She said, straining under his pressure, but more controlled than last time.
 
-Arthur let up a fraction, but didn't loosen his grip on her arm. "I'm not here to kill her, I'm trying to find her" he
+Del let up a fraction, but didn't loosen his grip on her arm. "I'm not here to kill her, I'm trying to find her" he
 said. He was about to keep going when he was thrown up against the wall in a heap beside the woman. It was a tangle of
-arms and legs as the woman struggled to struggle her arms free, and leverage her legs out from under him. Arthur
+arms and legs as the woman struggled to struggle her arms free, and leverage her legs out from under him. Del
 meanwhile was now facing the door and saw two armed figures entering a blown out doorway. It registered to him a second
 later that the door had been breached and had crashed into the glass balcony door. He'd been thrown by the pressure wave
 and now he had new problems. The two figures were heavily armed and had begun sweeping the room in an aggressive
@@ -405,7 +406,7 @@ beyond. It took a near miss to break the stupor that had come over him, and he i
 forward and roughly tipped the couch into a form of visual cover. The woman dove after him, taking cover behind the
 makeshift barrier, while leveling her pistol high over her head to keep up a steady barrage.
 
-Arthur dropped into a prone position, knowing full well that any return fire would shred the couch they'd taken refuge
+Del dropped into a prone position, knowing full well that any return fire would shred the couch they'd taken refuge
 behind. To her credit the woman had emptied her magazine and slotted in a new one with alarming speed and precision. "We
 need to get out of here!" he yelled over the barrage.
 
@@ -414,7 +415,7 @@ shots. "That was the only entrypoint!!" She screamed, clearly about to loose it 
 the door.
 
 Her gun clicked empty and she ducked, then lay prone on the floor. A split second later return fire sounded. Bullets and
-couch material exploded out inches above them. Arthur felt like he'd never been so close to live fire in his life and
+couch material exploded out inches above them. Del felt like he'd never been so close to live fire in his life and
 was sure that any second one the rounds would hit him. he forced himself to look away from the impending death, and
 towards his feet where the shattered balcony was. He needed to make it out there and then he could escape roughly the
 same was he came in. Maybe this new friend of his would even make it if she followed his lead. He just needed a
@@ -432,13 +433,13 @@ separating the door and the bedroom window.
 
 "Now what?!" she yelled at him.
 
-The rain was coming down hard now, and her hair was getting soaked. Arthur couldn't help but notice her eyes again, dark
+The rain was coming down hard now, and her hair was getting soaked. Del couldn't help but notice her eyes again, dark
 and scared above the mask covering her mouth and nose. He turned to face out, calling back to her as he built up speed.
 "Now we jump for it!" he yelled, leaping off the balcony railing.
 
 If he hadn't have know it was there, he'd have never sen the cable suspended between the neighboring buildings. It
 probably looked like he had just chosen to leap off a three story building rather than face the heavily armed assault
-force that had bore down on them. Arthur really would've preferred a three story fall to being riddled with bullets, but
+force that had bore down on them. Del really would've preferred a three story fall to being riddled with bullets, but
 he would've probably paused for a second longer before committing to a last ditch move such as that.
 
 This leap was much more frantic and desperate than his previous time. His angle had been much more aggressive since he
@@ -449,14 +450,14 @@ felt the cable violently shake and a grunt from next to him.
 He turned in horror to see the woman had leapt in front of him. She had aimed past him, further towards the center, and
 had therefore grabbed on by her elbow instead her armpit like him. He had honestly expected her to take longer to make
 up her mind, and therefore give him a chance to clamber further across. Instead they were now both next to each other,
-but with her hanging lower than him. Arthur's already adrenalin fired brain was struggling to think of what to do next,
+but with her hanging lower than him. Del's already adrenalin fired brain was struggling to think of what to do next,
 when he suddenly dropped a few feet. He gripped the cable harder than he'd gripped anything in his life. The woman let
 out a small scream, but held on she turned just her head to face him, the fear and anger clear in her eyes. That was all
 he could see above below the rain slick hair, and the soaking mask which had slipped to under her nose. He was about to
 say something when he dropped another few feet. Then he heard a a series of pops, and a single deafening snap. Over all
 the noise of the rain, and surely gunfire the snap rang clearest. His heart leapt into his throat long before the
 gravity got hold of him. Now it was his turn to yell, and the woman he was with screamed too. They fell together for
-what seemed like an eternity. Arthur couldn't see anything in front of him because the woman was blocking his view. Soon
+what seemed like an eternity. Del couldn't see anything in front of him because the woman was blocking his view. Soon
 the line went tight and he was jerked forward, barely able to hold on. The cable was freezing and slick with rain. His
 stomach lurched and he knew that the ground was going to come up any moment now. Together they were rotating on the
 cable and at the last moment he caught a split second view of the opposite building coming into view. He didn't have

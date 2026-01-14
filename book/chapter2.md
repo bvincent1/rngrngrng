@@ -1,9 +1,9 @@
 ---
-title: the meeting
-description: Meet Hector, Hector meets Peter
+title: types you meet in the tunnels
+description: Meet Hector, Hector meets Alphason
 ---
 
-> UNII Corps log date 2327-09-29-1048
+> UNII Corps log date 2327-09-29-0948 4 days later
 
 Hector's world slowly came back into focus. Consciousness leaked back into his body. It started in his hands and feet,
 and slowly moved up into his arms, legs, and shoulders. Eventually it reached his head. It slowly self assessed and
