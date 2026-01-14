@@ -3,8 +3,8 @@ title: Empty space
 description: intro Alphason, and Kane
 ---
 
-> UNII Corps log date 2327-09-25-0900: Incident report, immediate summons required for all HEAD-SERVICE members.
-> 4.45 months later
+> UNII Corps log date 2327-09-25-0900: Incident report, immediate summons required for all HEAD-SERVICE members. 4.45
+> months later
 
 "Floor 65", Alphason barked.
 
@@ -24,9 +24,9 @@ suspected it was to intimidate anyone who visited.
 The room was known as the shark tank. It was dark, quiet, and you knew that once you went in you were in danger. It was
 an interior room with glass walls, with only a single light source positioned above the table at its center. The table
 was a long rectangular conference table, made of cold metal and had sparse seating. Everything, including the people,
-was cold in here. Alphason knew it was on purpose, but he still did his best to calm himself for this meeting. You had to
-be cold to make it to where he had. He'd done things to get here. And here was the center of a mega corporation. He was
-an executive on the acquisitions team. His job was not pretty, but he knew it had to be done. The room beckoned, and
+was cold in here. Alphason knew it was on purpose, but he still did his best to calm himself for this meeting. You had
+to be cold to make it to where he had. He'd done things to get here. And here was the center of a mega corporation. He
+was an executive on the acquisitions team. His job was not pretty, but he knew it had to be done. The room beckoned, and
 despite how he felt, he willed himself to be the shark in this tank. He took a deep breath, opened the door and took a
 seat, first to arrive. When the door closed behind him it was silent. He could probably hear someone elses heartbeat in
 here, not just his own. He smoothly walked to a chair and took a seat. He did not bring any notes, nor did he have any
@@ -48,8 +48,8 @@ now stiffly looking across the table at each other, Alphason faced the head of p
 smirking slightly. Not at him, definitely, but because she knew what was going down. He would've killed to know what was
 going on, and she probably knew it. Kane took his seat at the far end of the table and waited. He didn't need to call
 attention to himself because the room knew he was in charge. It was probably only a few seconds before Kane started
-speaking, but it felt like an eternity to Alphason. Even with Alphason's military background, he'd witnessed firefights come
-and go quicker than this. Sweat beaded down his neck into his jet black suit shirt.
+speaking, but it felt like an eternity to Alphason. Even with Alphason's military background, he'd witnessed firefights
+come and go quicker than this. Sweat beaded down his neck into his jet black suit shirt.
 
 "I want you all to know that I'm disappointed, but not at all surprised" Kane spoke in an even, all knowing, tone. "It
 has always been a top security concern that we'd be betrayed or infiltrated at any level." He paused for effect. "What
@@ -57,11 +57,11 @@ disappoints me is that it's been at the highest level."
 
 Everyone in the room was staring straight ahead, and nobody willing to give an inch. Each of them knew that weakness was
 intolerable in this moment. Veterans of corporate violence though they were, probably none of them were ready for this
-kind of brazen callout. Alphason wondered who the culprit was, but kept his gaze focused on Emilia. She was just as focused
-as he was, but something about her suggested she knew. She'd probably been the one to point it out, Alphason figured.
-That's why she was smug. Of course she didn't dare openly gloat, but clearly she was getting immense satisfaction out of
-this. Alphason could almost see the satisfaction on her face, just underneath her emotionless corporate mask they'd all
-adopted in unison.
+kind of brazen callout. Alphason wondered who the culprit was, but kept his gaze focused on Emilia. She was just as
+focused as he was, but something about her suggested she knew. She'd probably been the one to point it out, Alphason
+figured. That's why she was smug. Of course she didn't dare openly gloat, but clearly she was getting immense
+satisfaction out of this. Alphason could almost see the satisfaction on her face, just underneath her emotionless
+corporate mask they'd all adopted in unison.
 
 Kane continued. "This kind of betrayal will not be dealt with in the usual fashion. Perhaps in the past things these
 things would be different. Back when we corporations bowed to laws, or governments. Back when there were rules.
@@ -88,20 +88,20 @@ tightened into a knot. His reacted without hesitation, shaking of years of rust,
 surging back to into his body. He grabbed a wrist, and pushed off the table, twisting as he went. One hand came free of
 his shoulder while the other came across his chest. The man he had by the wrist gave a grunt an then a groan as his head
 cracked into the table, and Alphason released him immediately. The send man was reaching for towards his waist, clearly
-about to make for a gun. Alphason used his twisting motion to swing his first into the guard's head. The man leaned back to
-dodge, but stumbled on the chair momentarily leaving an opening. Alphason followed up with an uppercut with his now free
-hand and landed it square under the guard's thick, cleanly shaven jaw. There was a crack, and the guard tumbled
-backwards. Alphason was moving for the door. Not with a plan, but with a direction. He didn't know how it had happened,but
-someone had set him up. Clearly there'd been a mistake or, more likely, deliberate sabotage. He made it a couple steps
-when his back arched and his legs suddenly flew out from under him as if they suddenly changed their minds. Time moves
-slowly in moments like that. It had all probably only been a couple of seconds, but even then it came crashing in a wave
-as he slowly fell to the floor. His back arched painfully and he knew he'd been tazed, and that the adrenalin had just
-prevented him from feeling the spikes. He knew that he'd been setup by Emilia, and that it had been no mistake that she
-had sat across from him. He knew that he was going to die. Probably not right away, but the grand speak Kane had given,
-had all but guaranteed his intentions for this kind of betrayal. Alphason hadn't even tried to talk his way out of it,
-which probably wouldn't have done anything, but it certainly would have made for a more convincing case for his
-innocence. Even as the floor rushed towards him he was powerless to do anything about it, his arms pinned to his sides
-by the constricting current running through his muscles. He closed his eyes and waited.
+about to make for a gun. Alphason used his twisting motion to swing his first into the guard's head. The man leaned back
+to dodge, but stumbled on the chair momentarily leaving an opening. Alphason followed up with an uppercut with his now
+free hand and landed it square under the guard's thick, cleanly shaven jaw. There was a crack, and the guard tumbled
+backwards. Alphason was moving for the door. Not with a plan, but with a direction. He didn't know how it had
+happened,but someone had set him up. Clearly there'd been a mistake or, more likely, deliberate sabotage. He made it a
+couple steps when his back arched and his legs suddenly flew out from under him as if they suddenly changed their minds.
+Time moves slowly in moments like that. It had all probably only been a couple of seconds, but even then it came
+crashing in a wave as he slowly fell to the floor. His back arched painfully and he knew he'd been tazed, and that the
+adrenalin had just prevented him from feeling the spikes. He knew that he'd been setup by Emilia, and that it had been
+no mistake that she had sat across from him. He knew that he was going to die. Probably not right away, but the grand
+speak Kane had given, had all but guaranteed his intentions for this kind of betrayal. Alphason hadn't even tried to
+talk his way out of it, which probably wouldn't have done anything, but it certainly would have made for a more
+convincing case for his innocence. Even as the floor rushed towards him he was powerless to do anything about it, his
+arms pinned to his sides by the constricting current running through his muscles. He closed his eyes and waited.
 
 Crack.
 
@@ -114,11 +114,11 @@ and ,he guessed, attached monitors to his chest and sides. He loosened his squin
 but not blinding, like interrogation lights just normal lights. He was in a clinical looking room of concrete floors and
 tile walls. There were no shelves, only the walls or in the corners that he could see only some wheeled carts with
 equipment on them. He didn't see a door, which meant it had to be behind him, but he did see a camera in the corner. It
-didn't have any indicator lights, but Alphason knew it had to be active and monitoring him. He looked closer at the tools
-on the metal carts and didn't recognize much. There were some probes, and tweezers but most of it seemed to be medical
-monitoring equipment equipment. One of the carts had a machine that looked like it was for radio signal monitoring. He
-recognized the shape from his time in the military, but he'd never used this particular model. The ones he had used were
-for signal jamming or monitoring. He was at a loss as to why they'd have something like that here.
+didn't have any indicator lights, but Alphason knew it had to be active and monitoring him. He looked closer at the
+tools on the metal carts and didn't recognize much. There were some probes, and tweezers but most of it seemed to be
+medical monitoring equipment equipment. One of the carts had a machine that looked like it was for radio signal
+monitoring. He recognized the shape from his time in the military, but he'd never used this particular model. The ones
+he had used were for signal jamming or monitoring. He was at a loss as to why they'd have something like that here.
 
 The there was a rusty creak from behind him and Alphason smelled ozone from the hallway. He heard rubber shoes on the
 concrete as the new visitor appeared from behind him, door screeching closed behind them. They were in surgical uniform,
@@ -151,10 +151,10 @@ that nonsense. It had been remotely activated, and was now going through some di
 did when they were turned on. He heard some screeches and burps come from it, and the speakers that were connected let
 out a faint hum. Whatever it was doing, it had power and it was ready now.
 
-It was slow at first. Alphason didn't know if the volume or the speed had increased, but he could faintly make out noises
-coming from the speaker. The noises were almost imperceptible at first. Just faint hisses, or crackles that almost
-merged with the low whines of the lights or the beating of his heart. He tried to steady himself, tensing against some
-assault that must be coming. He'd be blasted with words or noises any second and then he'd have to block it out. He
+It was slow at first. Alphason didn't know if the volume or the speed had increased, but he could faintly make out
+noises coming from the speaker. The noises were almost imperceptible at first. Just faint hisses, or crackles that
+almost merged with the low whines of the lights or the beating of his heart. He tried to steady himself, tensing against
+some assault that must be coming. He'd be blasted with words or noises any second and then he'd have to block it out. He
 waited. He waited some more. His breathing was regular, and he could feel time ticking away, but there was nothing. He
 listened closer now, unsure what to expect. The noises were just beyond his capabilities. And then they weren't. He
 heard some clicks, and then a hiss and suddenly he could make out the noises. They were random. It was just white noise.

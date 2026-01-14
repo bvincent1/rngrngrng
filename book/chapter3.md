@@ -3,8 +3,7 @@ title: slipped right through
 description: Del gets a job, things don't go according to plan
 ---
 
-> UNII Corps log date 2327-09-29-2224
-> 6 hours later
+> UNII Corps log date 2327-09-29-2224 6 hours later
 
 _Ding_ _Ding_
 
@@ -20,8 +19,8 @@ This time he acknowledged it and reach over for his phone on the sill.
 
 "Good, 'cause I have a job for you." She responded, omitting any comments on wether or not she believed him.
 
-Del sat up quickly, willing himself to be awake. He needed this job, but he didn't want to sound too desperate. He
-had his pride to protect.
+Del sat up quickly, willing himself to be awake. He needed this job, but he didn't want to sound too desperate. He had
+his pride to protect.
 
 "Order just came in. Need you to find someone. Her name is Lili Kant."
 
@@ -63,8 +62,8 @@ breathing, and get his heartbeat back to a relaxed speed. Slow was smooth, smoot
 Despite the late hour, the train was not empty. He had to walk towards the back to find a seat. Del sat heavily in a
 window seat and turned to look out at the far side of the tunnel wall, blurring past him.
 
-Del found he was feeling solemn about the state of things. He felt like he and everything around him was on the brink
-of collapsing. Mostly he blamed the megacorps for their collective predicament. The 'corps were too busy and greedy to
+Del found he was feeling solemn about the state of things. He felt like he and everything around him was on the brink of
+collapsing. Mostly he blamed the megacorps for their collective predicament. The 'corps were too busy and greedy to
 notice that they were eroding the very soil they built on. Del saw the people pushed to the brink by policies and
 monetizations resort to fighting everyone they could just to hold on. Some chose to fight the megacorps, but those
 people soon found out that military contracts were a core investment, and by consequence those victims were promptly
@@ -81,12 +80,12 @@ they just wanna know where the perp went. Don't get involved, don't cause a scen
 pocketed his phone. A few minutes later, he got out, and ascended from the underground rail. It had started raining
 slightly on his way over, and small droplets pattered on the glass windows and concrete walls just outside the station.
 He pulled up his hood and collar, crossed the building threshold out into the street and started towards the address. He
-walked briskly and with purpose, trying his best to project an attitude of 'don't fuck with me'. Del found that
-attitude made up a big part of separating those whom did get into trouble and those whom did not. Despite the violence,
-weapons were fairly simple. Guns were semi-common, but more often attackers would use blunt tools. Del himself
-carried an extendable rod, preferring the low profile approach to violence. Before all this, he'd joined the military,
-and to his surprise been appraised as an expert scout. His natural tendency for stealth, combined with his perfect sense
-of direction had helped him get noticed early on in his training. He'd been destined for a role in the
+walked briskly and with purpose, trying his best to project an attitude of 'don't fuck with me'. Del found that attitude
+made up a big part of separating those whom did get into trouble and those whom did not. Despite the violence, weapons
+were fairly simple. Guns were semi-common, but more often attackers would use blunt tools. Del himself carried an
+extendable rod, preferring the low profile approach to violence. Before all this, he'd joined the military, and to his
+surprise been appraised as an expert scout. His natural tendency for stealth, combined with his perfect sense of
+direction had helped him get noticed early on in his training. He'd been destined for a role in the
 **scouting_regiment** before things had gone sideways. Despite that, he'd always retained his skills, and as he got
 closer to the block he slowed from a brisk walk into a quiet prowl. He approached the final corner, and stopped just
 short. He patted his jacket pocket for the reassuring weight of the extendable baton. Once he felt it, he leaned out
@@ -94,11 +93,11 @@ from behind the corner to peer around the corner for the target building.
 
 The street was flanked with rows of skinny midsize rises, each about 3 to 5 floors high. The street itself was bare
 except for a few scraps of trash littering the steps of the various rises. There were no cars, and no people which felt
-a bit odd. The rain had probably pushed everyone to leave for shelter. Thin gaps separated the buildings, that Del
-was certain concealed tired and restless people, waiting for fairer weather, or for helpless victims to pass. He checked
-the address again and confirmed that 'Lili' lived on the 3rd floor of the middle building across from him. He pulled out
-his phone and messaged Rikki "Which room is hers? Perspective from the outside front of the building", and then pocketed
-his phone instead of waiting for a reply. He turned around and made for the back of the building opposite his target.
+a bit odd. The rain had probably pushed everyone to leave for shelter. Thin gaps separated the buildings, that Del was
+certain concealed tired and restless people, waiting for fairer weather, or for helpless victims to pass. He checked the
+address again and confirmed that 'Lili' lived on the 3rd floor of the middle building across from him. He pulled out his
+phone and messaged Rikki "Which room is hers? Perspective from the outside front of the building", and then pocketed his
+phone instead of waiting for a reply. He turned around and made for the back of the building opposite his target.
 
 He knew he didn't stand a chance of getting in the front, but he was counting on the element of surprise for this plan
 he was quickly making up as he went along. Cutting through the alley he counted until he arrived at the rear of the
@@ -113,13 +112,13 @@ a bit, but it was enough. He reached out and his fingers made contact with the r
 the can clattered with a resounding bang. Turning slightly he swung his other hand up to make contact and strained his
 muscles to pull himself up.
 
-Del underestimated how much effort this was taking him. He pulled himself up, and remembered the endless exercises
-and training he'd undergone. The screams and yells of instructors and fellow recruits flooded his memories as he muscled
-up to the next bar. He made it up, and up, and before he knew it he was huffing on the metal grating of the first
-landing. He took a moment to catch his breath as best he could, but he didn't want to stay longer in case that noise had
-alerted someone looking to cause him trouble. He quickly ascended the grated metal steps, carefully testing his weight
-in some of the more corroded sections. Before he knew it he was at the roof. It was painfully obvious he'd made it
-because the rain and wind had picked up and were now battering him from what seemed like both sides.
+Del underestimated how much effort this was taking him. He pulled himself up, and remembered the endless exercises and
+training he'd undergone. The screams and yells of instructors and fellow recruits flooded his memories as he muscled up
+to the next bar. He made it up, and up, and before he knew it he was huffing on the metal grating of the first landing.
+He took a moment to catch his breath as best he could, but he didn't want to stay longer in case that noise had alerted
+someone looking to cause him trouble. He quickly ascended the grated metal steps, carefully testing his weight in some
+of the more corroded sections. Before he knew it he was at the roof. It was painfully obvious he'd made it because the
+rain and wind had picked up and were now battering him from what seemed like both sides.
 
 He huddled on the roof, and slowly scooted towards the front. He pulled his jacket and hood tighter to protect himself
 from the rain and wind. His jacket was an off black color and water resistant, but not water proof. He'd had it altered
@@ -135,15 +134,15 @@ ones, but at least they'd be slow to stir, or just simply ignore anything in fav
 could. The entire thing was uninspired blocky architecture, and made with the same concrete that every construction
 company used. The rooms themselves all had one unified balcony with divider walls separating each unit's alloted space.
 Their were tarps covering boxes on several of the balconies, and the others had a an odd chair, or were empty. The rain
-was coloring the concrete a darker grey, and combined with the wind was making a decent noise. Del relaxed a bit
-since this meant he'd go completely unnoticed. Nothing to see here, just another pill of trash huddled against the
-elements. He tried not to feel to literally about it.
+was coloring the concrete a darker grey, and combined with the wind was making a decent noise. Del relaxed a bit since
+this meant he'd go completely unnoticed. Nothing to see here, just another pill of trash huddled against the elements.
+He tried not to feel to literally about it.
 
 Pulling the monocular away, he leaned forwards and pulled his phone out, careful not to get it wet. Hunched over his
 phone, he dimmed the screen and checked for any replies from Rikki. She had responded with "3rd floor, far left". He
 pocketed his phone and pulled his monocular back up to his face to better examine the target unit. The monocular didn't
-have anything like a camera, night vision, or thermal imaging. Del had mostly used it recon, and didn't have the
-money to invest in something like that. He'd once had to take pictures through it via his phone, but that was the most
+have anything like a camera, night vision, or thermal imaging. Del had mostly used it recon, and didn't have the money
+to invest in something like that. He'd once had to take pictures through it via his phone, but that was the most
 technical he'd had to get. He slowly worked the focus and zoom until he could see into the unit via the balcony door and
 window.
 
@@ -172,9 +171,9 @@ was pretty close between the two, but if he fell, that'd be it for him. Del back
 his target. He took a few breaths, and wiped his hands on the insides of his jacket to try and dry them off. They felt
 clammy and slick. He'd be pushing his luck with this one. In three steps, he closed the gap and leapt.
 
-Del felt weightless in the air, like he'd be able to jump across the whole street if he had tried. His arms were up
-and reaching. He'd angled his approach and used the balustrade as a boost to do this. That trick had gained him the
-extra feet he needed to make this work. All too quickly his outstretched hands slapped against the cold plastic of the
+Del felt weightless in the air, like he'd be able to jump across the whole street if he had tried. His arms were up and
+reaching. He'd angled his approach and used the balustrade as a boost to do this. That trick had gained him the extra
+feet he needed to make this work. All too quickly his outstretched hands slapped against the cold plastic of the
 cabling, and he grabbed hold with all his might. He quickly swung his other arm to grab hold as well. He felt his
 shoulder twinge, and he knew he should have stretched before all this.
 
@@ -186,12 +185,12 @@ backlighting him someone would have surely noticed. He didn't have to worry abou
 concentration to grab the cable. Hand over hand, he climbed forwards. He was only about halfway before he found a flaw
 in his plan. The cable he was climbing across, like some playground equipment from his childhood, was sagging. He didn't
 know what exactly it's purpose was, but clearly the installation engineer had not prepared it to support the weight of a
-full grown man. Del knew it was too late to back down, so he kipped up and pulled his legs up onto the cable. Taking
-the weight off his arms, left him more strength to focus on his grip. His willpower was strong, and that what mattered.
-He pulled instead of swung now, and did his best to ignore the growing pain in his shoulder and the cold seeping into
-every part of his body. This maneuver had opened him up to the elements on a whole new scale. His jacket was hanging off
-him by the shoulders, and the rain was hammering his face. His hands would go numb soon, and when that happened, he
-would be done for.
+full grown man. Del knew it was too late to back down, so he kipped up and pulled his legs up onto the cable. Taking the
+weight off his arms, left him more strength to focus on his grip. His willpower was strong, and that what mattered. He
+pulled instead of swung now, and did his best to ignore the growing pain in his shoulder and the cold seeping into every
+part of his body. This maneuver had opened him up to the elements on a whole new scale. His jacket was hanging off him
+by the shoulders, and the rain was hammering his face. His hands would go numb soon, and when that happened, he would be
+done for.
 
 Hand over numbing hand, Del pulled himself along the cable until he reached the opposite building. He wedged his
 shoulder right up against the concrete and reached up onto the roof. The concrete was even colder than the plastic and
@@ -245,13 +244,13 @@ anything that would indicate danger, but all he could here was the soft tapping 
 full height, and rolled his sore shoulders, taking a moment to relax and ready himself at the same time. The room was
 dark and quiet, and now that he was standing he could see that it was neat and tidy. He was by far the messiest thing in
 the room, and he was slowly spreading a puddle of water onto the floor. He pulled a mat over and covered the small mess
-he'd made, walked over to the bed room. Del held his baton in front of him, low but ready, in case and turned into
-the bedroom. It was as clear os the rest of the apartment. He went and checked the bathroom, and saw that while it had
-signs of use, it was also tidy and neat. As far of decoration went, the apartment had a double mattress with plain
-sheets, some basic storage of fake wood cabinets, a cloth couch, and a desk with a desktop plugged in. He went through
-all the drawers and shelves, finding nothing out of place, and nothing obviously missing. It was like this "Lili" had
-either stepped out this morning and never returned, or she'd had everything set up and just abandoned her life here. He
-sat on the couch, which faced towards the desk and tried to think. Then he had an idea.
+he'd made, walked over to the bed room. Del held his baton in front of him, low but ready, in case and turned into the
+bedroom. It was as clear os the rest of the apartment. He went and checked the bathroom, and saw that while it had signs
+of use, it was also tidy and neat. As far of decoration went, the apartment had a double mattress with plain sheets,
+some basic storage of fake wood cabinets, a cloth couch, and a desk with a desktop plugged in. He went through all the
+drawers and shelves, finding nothing out of place, and nothing obviously missing. It was like this "Lili" had either
+stepped out this morning and never returned, or she'd had everything set up and just abandoned her life here. He sat on
+the couch, which faced towards the desk and tried to think. Then he had an idea.
 
 He pulled out his phone and tapped on Rikki's contact icon. A soft dialing tone came from his phone and he put it to his
 ear, bracing for the emotional damage this was going to do to him.
@@ -283,8 +282,8 @@ Del paused, one end of the cable connected to his phone, the other inches from c
 "Good, turn off the desktop first, then plug me in, then find the keyboard, turn it on, and then hold down the delete
 key." She paused. "Got all that?"
 
-Del paused a second, he was identifying th delete key on the keyboard, even though he'd used one a million times
-before. After a second he replied "Got it. I'll let you know when I turn it on"
+Del paused a second, he was identifying th delete key on the keyboard, even though he'd used one a million times before.
+After a second he replied "Got it. I'll let you know when I turn it on"
 
 "Thanks" the woman on the speaker. Then a second later "Wait!".
 
@@ -309,23 +308,23 @@ clicked it.
 
 "You'll need to use the keyboard" Rikki replied before he could even ask.
 
-Del was getting frustrated with this, but he did as he told. A second later Rikki gave him more instructions, and
-after a couple minutes of back and forth troubleshooting they made progress. Now the screen was flashing with all sorts
-of text and info. Del could here loud clacking over the call. Rikki was typing faster than he could even dream, and
-she was clearly focused. He waited for her inevitable gloating to start.
+Del was getting frustrated with this, but he did as he told. A second later Rikki gave him more instructions, and after
+a couple minutes of back and forth troubleshooting they made progress. Now the screen was flashing with all sorts of
+text and info. Del could here loud clacking over the call. Rikki was typing faster than he could even dream, and she was
+clearly focused. He waited for her inevitable gloating to start.
 
 "So I've found something. But I can't read it." Rikki started, "you see most of the stuff on here is unencrypted, and
 useless. But there's a drive that I can't read. That's probably important. I'm gonna need you to get that and bring it
 to me. I can't copy it from here." Rikki said.
 
-She sounded worn out, despite not actually having done anything nearly as strenuous as what he'd done. Del had pulled
-up a chair and sat quietly while this had gone down. Much to his surprise Rikki's searching had taken longer than it had
-to hack in. He was about to respond to her when he paused. His heart was suddenly beating too loud, and he willed his
-ears to ignore it. He heard scratching coming from the door. He acted faster than he could talk. He ripped his phone
-from the connection, and clenched his first around it in a desperate struggle to power it off without properly finding
-the button. He heard a faint squeak and then nothing from his phone, and the monitor flashed a bunch of corrupted
-letters, then died. He dived behind the far end of the couch just as the door opened, spilling light into the room.
-Del desperately tucked himself behind the arm of the couch and thanked god that he'd kept his hood on.
+She sounded worn out, despite not actually having done anything nearly as strenuous as what he'd done. Del had pulled up
+a chair and sat quietly while this had gone down. Much to his surprise Rikki's searching had taken longer than it had to
+hack in. He was about to respond to her when he paused. His heart was suddenly beating too loud, and he willed his ears
+to ignore it. He heard scratching coming from the door. He acted faster than he could talk. He ripped his phone from the
+connection, and clenched his first around it in a desperate struggle to power it off without properly finding the
+button. He heard a faint squeak and then nothing from his phone, and the monitor flashed a bunch of corrupted letters,
+then died. He dived behind the far end of the couch just as the door opened, spilling light into the room. Del
+desperately tucked himself behind the arm of the couch and thanked god that he'd kept his hood on.
 
 From his position behind the arm of the couch, he was facing towards the glass door of the balcony. In the reflection he
 could see a figure standing in the brightly lit doorway. They were dressed in loose, but not obstructive black clothing.
@@ -334,13 +333,12 @@ His own reflection didn't show any meaningful shape and instead made him look li
 knowing full well that any movement would give him away. The figure stepped inside, and closed the door without looking.
 The faint click and snap told him they'd locked it behind them. The figure surveyed the room from a standstill and
 paused looking at the doorway to the bedroom. They raised one arm up, and leveled the other underneath it, a small shape
-in their hand. Del figured it was a gun of some sort, but he couldn't recognize the type outright from the
-reflection. One careful step after the other, the figure moved towards the bedroom door. They held a low stance, ready
-for a fight. Experienced. Del was suddenly very aware of the mess he'd made on the way in. As the figure stepped
-closer and closer, he lost his view in the reflection of the glass balcony door. Del had to wait until he was sure
-the figure wouldn't see him move. It was agony, but he forced himself to wait , counting the seconds in his head. At the
-bottom of his count he silently shifted from the end of the couch to the front, almost crawling so the figure wouldn't
-be able to see him.
+in their hand. Del figured it was a gun of some sort, but he couldn't recognize the type outright from the reflection.
+One careful step after the other, the figure moved towards the bedroom door. They held a low stance, ready for a fight.
+Experienced. Del was suddenly very aware of the mess he'd made on the way in. As the figure stepped closer and closer,
+he lost his view in the reflection of the glass balcony door. Del had to wait until he was sure the figure wouldn't see
+him move. It was agony, but he forced himself to wait , counting the seconds in his head. At the bottom of his count he
+silently shifted from the end of the couch to the front, almost crawling so the figure wouldn't be able to see him.
 
 To his credit, he was as silent as a shadow. He made it all the way to the other end of the couch and peaked around the
 corner. From his new point of view he saw the figure had their back turned towards him. From here he could see that they
@@ -349,11 +347,11 @@ swept back and forth, clearing the bedroom. Del didn't recognize the weapon, but
 didn't really matter if it was less than lethal or not, either way that'd be the end for him. He looked at the door, and
 tried to imagine if he still had enough time to unlock it and escape into the hallway. He was halfway through his mental
 preparation, when he heard a click from the bedroom. Footsteps followed, quiet, but not silent. The footsteps were
-crossing back out into the living room, but they paused. It was only a few seconds, but to Del it felt like an
-eternity. He knew it was about to be the moment. The moment when you committed to violence, to confrontation. The moment
-where you had to embrace the darker side, and block out everything else. His pulse quickened as adrenalin flooded his
-veins. His ears started ringing from the sudden pressure change, and he suddenly felt like he had to pant to breath. He
-sucked in a breath, and sprung.
+crossing back out into the living room, but they paused. It was only a few seconds, but to Del it felt like an eternity.
+He knew it was about to be the moment. The moment when you committed to violence, to confrontation. The moment where you
+had to embrace the darker side, and block out everything else. His pulse quickened as adrenalin flooded his veins. His
+ears started ringing from the sudden pressure change, and he suddenly felt like he had to pant to breath. He sucked in a
+breath, and sprung.
 
 In the time since he'd last looked, the other intruder had turned to inspect the balcony door. They had clearly noticed
 the small mess he'd made, and the crack in the door. He figured that distraction was to his advantage. They were sideway
@@ -378,13 +376,13 @@ without trying to seem desperate, he deigned to try a different tactic.
 "Lili, I'm here to help you." he said, breathing hard and holding up a weak hand in front of him. His wrist was
 throbbing and pain was shotting up his sides where she'd landed her kicks. She paused for a second, and he thought she
 even caulked her head to the side, pondering what he'd just said. Before he could keep talking, she reached towards her
-side and went to pull her sidearm. Del cursed his bad planning, and his bad judgement. This woman was better than him
-in every way. She was better equipped, and better trained. He was outclassed and he knew it. She probably knew it too.
-He leapt again at her, intending to pin her arms so she couldn't draw on him. She saw him leap again, and went to block
-him but she slipped. He tumbled into her and missed the grab. She was on the floor and he was only managed to grab her
-arm. In this new position, she had pinned her own arm and couldn't draw on him. He used his bigger size to pin her and
-felt her land blow after blow with her free arm. He braced himself against it and dug his boots into the floor to hold
-her pinned against the floor and the wall. He gritted his teeth and put all he could into keeping her pinned. After what
+side and went to pull her sidearm. Del cursed his bad planning, and his bad judgement. This woman was better than him in
+every way. She was better equipped, and better trained. He was outclassed and he knew it. She probably knew it too. He
+leapt again at her, intending to pin her arms so she couldn't draw on him. She saw him leap again, and went to block him
+but she slipped. He tumbled into her and missed the grab. She was on the floor and he was only managed to grab her arm.
+In this new position, she had pinned her own arm and couldn't draw on him. He used his bigger size to pin her and felt
+her land blow after blow with her free arm. He braced himself against it and dug his boots into the floor to hold her
+pinned against the floor and the wall. He gritted his teeth and put all he could into keeping her pinned. After what
 felt like forever he felt her loosen up a fraction, and he heard her yell at him.
 
 "I'm not Lili you asshole."
@@ -396,15 +394,15 @@ she's long gone." She said, straining under his pressure, but more controlled th
 
 Del let up a fraction, but didn't loosen his grip on her arm. "I'm not here to kill her, I'm trying to find her" he
 said. He was about to keep going when he was thrown up against the wall in a heap beside the woman. It was a tangle of
-arms and legs as the woman struggled to struggle her arms free, and leverage her legs out from under him. Del
-meanwhile was now facing the door and saw two armed figures entering a blown out doorway. It registered to him a second
-later that the door had been breached and had crashed into the glass balcony door. He'd been thrown by the pressure wave
-and now he had new problems. The two figures were heavily armed and had begun sweeping the room in an aggressive
-fashion. The woman, partially underneath him finally freed her gun and raised it above her head and fire off shots in
-the direction of the newest intruders. They immediately ducked, fired back with high aim, and retreated to the hallway
-beyond. It took a near miss to break the stupor that had come over him, and he immediately dove into action. He crawled
-forward and roughly tipped the couch into a form of visual cover. The woman dove after him, taking cover behind the
-makeshift barrier, while leveling her pistol high over her head to keep up a steady barrage.
+arms and legs as the woman struggled to struggle her arms free, and leverage her legs out from under him. Del meanwhile
+was now facing the door and saw two armed figures entering a blown out doorway. It registered to him a second later that
+the door had been breached and had crashed into the glass balcony door. He'd been thrown by the pressure wave and now he
+had new problems. The two figures were heavily armed and had begun sweeping the room in an aggressive fashion. The
+woman, partially underneath him finally freed her gun and raised it above her head and fire off shots in the direction
+of the newest intruders. They immediately ducked, fired back with high aim, and retreated to the hallway beyond. It took
+a near miss to break the stupor that had come over him, and he immediately dove into action. He crawled forward and
+roughly tipped the couch into a form of visual cover. The woman dove after him, taking cover behind the makeshift
+barrier, while leveling her pistol high over her head to keep up a steady barrage.
 
 Del dropped into a prone position, knowing full well that any return fire would shred the couch they'd taken refuge
 behind. To her credit the woman had emptied her magazine and slotted in a new one with alarming speed and precision. "We
@@ -415,13 +413,13 @@ shots. "That was the only entrypoint!!" She screamed, clearly about to loose it 
 the door.
 
 Her gun clicked empty and she ducked, then lay prone on the floor. A split second later return fire sounded. Bullets and
-couch material exploded out inches above them. Del felt like he'd never been so close to live fire in his life and
-was sure that any second one the rounds would hit him. he forced himself to look away from the impending death, and
-towards his feet where the shattered balcony was. He needed to make it out there and then he could escape roughly the
-same was he came in. Maybe this new friend of his would even make it if she followed his lead. He just needed a
-distraction. He glanced around and saw only destruction and chaos. With a sickening feeling he reached into his chest
-pocket and produced his monocular. He rolled onto his back, and with his free hand patted the woman on her should, held
-a single finger to his mouth, and then yelled at the top of his lungs. "Grenade out!!"
+couch material exploded out inches above them. Del felt like he'd never been so close to live fire in his life and was
+sure that any second one the rounds would hit him. he forced himself to look away from the impending death, and towards
+his feet where the shattered balcony was. He needed to make it out there and then he could escape roughly the same was
+he came in. Maybe this new friend of his would even make it if she followed his lead. He just needed a distraction. He
+glanced around and saw only destruction and chaos. With a sickening feeling he reached into his chest pocket and
+produced his monocular. He rolled onto his back, and with his free hand patted the woman on her should, held a single
+finger to his mouth, and then yelled at the top of his lungs. "Grenade out!!"
 
 A split second later he lobbed the tubular object from a prone position over the couch and beyond. He never knew where
 it landed. He never got the chance to find out later. All he knew was a split second later the firing paused, and he
@@ -439,8 +437,8 @@ and scared above the mask covering her mouth and nose. He turned to face out, ca
 
 If he hadn't have know it was there, he'd have never sen the cable suspended between the neighboring buildings. It
 probably looked like he had just chosen to leap off a three story building rather than face the heavily armed assault
-force that had bore down on them. Del really would've preferred a three story fall to being riddled with bullets, but
-he would've probably paused for a second longer before committing to a last ditch move such as that.
+force that had bore down on them. Del really would've preferred a three story fall to being riddled with bullets, but he
+would've probably paused for a second longer before committing to a last ditch move such as that.
 
 This leap was much more frantic and desperate than his previous time. His angle had been much more aggressive since he
 didn't want to leave anything to chance. The cable caught him across his chest and he swung back and forth laterally
