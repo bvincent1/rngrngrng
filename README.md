@@ -2,15 +2,16 @@
 
 ## Genres
 
-[\#sci-fi]()[\#cosmic-horror]()[\#dystopian]()
+[\#sci-fi]() [\#cosmic-horror]() [\#dystopian]() [\#grimdark]()
 
 ## Synopsis
 
-A new war is brewing and Arthur "Del" O'Delt has unintentionally landed right in the middle of it. A mysterious new
-force is threatening the entrenched megacorps, and now all sides are struggling to harness it for their own goals of
-total control. Old technologies are waking up, and new threats are emerging faster than either side can deal with. Del
-and his company of unlikely allies must shed their differences if they are to survive the web of corporate armies and
-the god-like forces that seem to answer to one man.
+A new war is brewing and Arthur “Del” O’Delt has unintentionally landed right in the middle of it. A mysterious new
+power is rising, one strong enough to threaten the entrenched megacorps that rule everything in their shadow. Now, every
+side is scrambling to seize it, each driven by the same hunger: total domination. Old threats are waking up, new ones
+are emerging—faster than anyone can stop them, and now Del, alongside a company of unlikely allies, must confront their
+differences to survive. Corporate armies are on the move. Cosmic, god-like powers are closing in. All of them racing to
+control the one man who could mean the difference between survival and absolute destruction.
 
 ## Chapers
 
