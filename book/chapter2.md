@@ -505,13 +505,13 @@ days it served a much worse purpose. The building itself reminded hector of how 
 with ragged sheets flapping out windows. Most of the windows had been smashed inwards from weather or from building
 stress. Sections of exterior paneling had been ripped off from storms and from age. Broken furniture, old scraps of
 fabric, and trash was scattered all around it. It looked haunted and ominous, the sheets and rags a withered cloak
-hiding some ancient dark-magic human. Even the dark interior felt like it was howling moans of **sadness** and
+hiding some ancient dark-magic human. Even the dark interior felt like it was howling moans of ~~sadness~~ and
 suffering. The building hungered for souls, and here hector was going to willingly enter. He knew it was just a facade,
 a trick, and a well thought out one at that. It was the same everywhere. Big fronts hiding the truth to keep people out
 and away. Only the desperate or the brave ever made the push to find something underneath. He had been desperate once.
 He had seen what lay behind the mask and he had realized that people were the exact same way.
 
-He walked in through a broken window into the **entry_way**, and felt eyes following him. He knew better than to try and
+He walked in through a broken window into the ~~entry way~~, and felt eyes following him. He knew better than to try and
 stare them down and instead kept moving towards a desk, intending for the door behind it. He went into the door and was
 immediately greeted by a gun held loosely at head height.
 

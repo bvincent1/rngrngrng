@@ -72,7 +72,7 @@ interrogate her. They'd be convinced she knew something, and she'd have to convi
 dark as them. Maybe Emilia would send them. Maybe she'd choose to evaluate her, and make sure Andrea hadn't gone rogue.
 
 Andrea had been at this all day. She had missed her check-in and she knew that would raise alarms. She felt like she had
-enough **track** that she could pull it off, but maybe she was wrong. She constantly second guessed her relationships at
+enough ~~track~~ that she could pull it off, but maybe she was wrong. She constantly second guessed her relationships at
 the office. Despite all that she'd done, and all that she'd accomplished, shed never fully trust the corporate world. Or
 anyone, for that matter. Trusting people got you in trouble. Andrea couldn't afford trouble. Either way, she was sure
 she'd get a call about the check-in. She'd have to spin something about following a lead. This Lili Kant had proven much
@@ -153,7 +153,7 @@ around him, and practically leapt out of the enclosed space.
 
 Andrea was so distracted trying to ignore the acolyte, that she didn't look up until it was almost too late. She had
 almost collided with someone waiting at the top of the elevator, and had to quickly throw herself back to arrest her
-momentum. She let out a small **scream**, and the pedestrian threw up an arm to ward off some unknown attacker. Andrea
+momentum. She let out a small ~~scream~~, and the pedestrian threw up an arm to ward off some unknown attacker. Andrea
 cursed herself for this, and when she caught her balance again, she tried to duck around the flailing person, only to
 find herself face to face with a group of acolytes. She stopped and stood there, dumbstruck by the sight. Slowly the
 horror rose through her body as she dreaded yet more pointless conversations of saviors and completeness.
@@ -165,7 +165,7 @@ their intense gaze, unsure how to proceed. She desperately wanted to pull her gu
 in front of herself to get these bipedal insectoids out of her way and just get home. She was halfway through reaching
 into her pocket when the person she'd almost ran over turned to face her and spoke.
 
-"I'm so sorry, I should really get out of the way." He said, **adopting** a jovial and well meaning tone.
+"I'm so sorry, I should really get out of the way." He said, ~~adopting~~ a jovial and well meaning tone.
 
 She stopped to look at the man addressing her and saw to her continued horror that he was wearing a black suit with a
 priests collar. Instead of the aged beetle of a human the acolyte had been, this man was middle aged, and very well
@@ -258,7 +258,7 @@ moments ago. She couldn't explain why she was so scared. Something about her day
 Maybe it was everything combined, followed up by this whole ordeal with the cult that had her so off balance.
 
 She turned to inspect the doorway, and for a moment there was an outline she couldn't explain. A split second later her
-hand found the light switch and light flooded the closet, **shying** the shape away. Andrea whipped her head back around
+hand found the light switch and light flooded the closet, ~~shying~~ the shape away. Andrea whipped her head back around
 and saw the shotgun handle inches from where she had grasped for it. She cursed herself again, grabbed the handle and
 pulled it out while spinning around as fast as she dared. Her spin brought her face to face with nothing. She leveled
 the gun with her other hand, and racked the slide. It made a satisfying _chunk_ noise, and she immediately felt better.
@@ -313,14 +313,14 @@ let herself collapse into it.
 She let the gun lean against the cushion next to her and tilted her head back. Despite having her back to the door, she
 took comfort in the solemnity she commanded from her throne. she tilted her head back up and took a sip, savouring the
 rich and peaty flavor. Small droplets of rain pattered on her window and Andrea looked out her window, taking in the
-view. City lights offered dim illumination far bellow her. Their dull **illumnations** constant sources of energy and
+view. City lights offered dim illumination far bellow her. Their dull ~~illumnations~~ constant sources of energy and
 life in the otherwise all consuming lifeless city. Their were no cars, and no trains, just the deep pause before the
 city woke up from it's fitful slumber. Far away steam rose from smaller towers, fading quietly into the wet night air.
 Andrea often looked out her windows and lost herself in the magnitude of it all. She thought back to all the battles
 she'd fought here and how little it meant to the great machine. With or without her, it would toil onwards. The city
 consumed everything. It pulled everything towards it, consuming it and repurposing it for itself. Everyone here was at
 the mercy of it. Some great monster they all paid homage to, each one hopping to stave off being it's next meal for a
-moment longer. The bigger it got, the greater its pull, and the greater the toll it exacted on it's **patrons**.
+moment longer. The bigger it got, the greater its pull, and the greater the toll it exacted on it's ~~patrons~~.
 
 "Uhhhhgggggg" andrea let out a great sign.
 

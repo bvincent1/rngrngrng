@@ -37,7 +37,7 @@ physics involved than he could ever hope to achieve, it would be up to him to ac
 concern of theirs. In the past they're raised issues about satellite drift, and signal distortion, and other things that
 the higher-ups simply did not care about. Geoff was fairly certain that nobody cared at all about satellites anymore. At
 some point in history we'd turned inwards, instead of outwards and now they'd abandoned this kind of work and progress
-for more material gains. Inwards had turned everything sour and **difficult**. The people, the weather, and even the
+for more material gains. Inwards had turned everything sour and ~~difficult~~. The people, the weather, and even the
 soil had turned on each other where now everyone was fighting each other for whatever they could hold onto. All that
 suited him fine, because it meant that nobody bothered him, nobody fought him, and he could just exist with one less
 thing to worry about. "What have you got for me Hale?" Geoff asked.

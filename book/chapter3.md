@@ -5,11 +5,11 @@ description: Del gets a job, things don't go according to plan
 
 > UNII Corps log date 2327-09-29-2224 6 hours later
 
-_Ding_ _Ding_
+**Ding Ding**
 
 Del heard the chime.
 
-_Ding_ _Ding_
+**Ding Ding**
 
 This time he acknowledged it and reach over for his phone on the sill.
 
@@ -55,7 +55,7 @@ Even though it was late, there was always people moving from one place to anothe
 window, he liked imagining what reasons people had to be out and about if they weren't like him. At the doors to the
 rail station he heard an chime, and he paused his rush so he could focus and listen. The prerecorded voice announced
 that his train would arrive shortly. He stepped faster than he'd have liked in order to make it in time. Steps flew
-past, and corners blurred as he half walked, half jogged to make it. He arrived at the **stand** and found he had a
+past, and corners blurred as he half walked, half jogged to make it. He arrived at the ~~stand~~ and found he had a
 minute to spare. He was slightly out of breath, and felt his blood pumping from the exertion. He tried to slow his
 breathing, and get his heartbeat back to a relaxed speed. Slow was smooth, smooth was fast. Breathe.
 
@@ -73,7 +73,7 @@ only the mega rich could afford the security necessary to avoid it. Everyone els
 
 Even the weather felt hostile. Being next to ocean, the city had always been subjected to harsher rain and wind, but
 lately more and more problems had cropped up. Buildings collapsing from eroded foundations and strong winds. Rain
-acidity causing concrete to deteriorate faster than expected, **necessing** costly repairs.
+acidity causing concrete to deteriorate faster than expected, ~~necessing~~ costly repairs.
 
 His phone dinged again, breaking morose train of thought, and an update from Rikki popped onto the banner. 'Remember,
 they just wanna know where the perp went. Don't get involved, don't cause a scene.'. As if he needed a reminder. He
@@ -85,11 +85,11 @@ made up a big part of separating those whom did get into trouble and those whom 
 were fairly simple. Guns were semi-common, but more often attackers would use blunt tools. Del himself carried an
 extendable rod, preferring the low profile approach to violence. Before all this, he'd joined the military, and to his
 surprise been appraised as an expert scout. His natural tendency for stealth, combined with his perfect sense of
-direction had helped him get noticed early on in his training. He'd been destined for a role in the
-**scouting_regiment** before things had gone sideways. Despite that, he'd always retained his skills, and as he got
-closer to the block he slowed from a brisk walk into a quiet prowl. He approached the final corner, and stopped just
-short. He patted his jacket pocket for the reassuring weight of the extendable baton. Once he felt it, he leaned out
-from behind the corner to peer around the corner for the target building.
+direction had helped him get noticed early on in his training. He'd been destined for a role in the ~~scouting regiment
+before things had gone sideways. Despite that, he'd always retained his skills, and as he got closer to the block he
+slowed from a brisk walk into a quiet prowl. He approached the final corner, and stopped just short. He patted his
+jacket pocket for the reassuring weight of the extendable baton. Once he felt it, he leaned out from behind the corner
+to peer around the corner for the target building.
 
 The street was flanked with rows of skinny midsize rises, each about 3 to 5 floors high. The street itself was bare
 except for a few scraps of trash littering the steps of the various rises. There were no cars, and no people which felt
@@ -232,7 +232,7 @@ Del pocketed his phone, and took out his baton. He first felt around the edges o
 purchase. He felt the lip of the outer seal, and tried pulling with his numb fingers. The window didn't budge, so he
 turned and crouch walked the few steps back towards the balcony door. He tried wiggling his fingers into the nearside
 gap, looking to push it open from the outside. He felt it move. Del smiled to himself. He angled his baton into the
-seam, and tried to half wedge, half crook the handle into it. It was scratching the metal **edge** but he pushed harder,
+seam, and tried to half wedge, half crook the handle into it. It was scratching the metal ~~edge~~ but he pushed harder,
 starting to lean into it. He felt it creaking as he slowly overpowered the latch and the door groaned open an inch. Now
 he fully inserted the baton into the gap and wedged it to lever open the door the rest of the way. It let out one final
 groan and then a satisfying pop as the metal latch fully snapped and the door rolled open.
@@ -255,7 +255,7 @@ the couch, which faced towards the desk and tried to think. Then he had an idea.
 He pulled out his phone and tapped on Rikki's contact icon. A soft dialing tone came from his phone and he put it to his
 ear, bracing for the emotional damage this was going to do to him.
 
-_Click_
+**Click**
 
 "I need your help" Del said, with his eyes closed, his face scrunched up in self disgust, and his gut tightening in
 apprehension.
@@ -442,7 +442,7 @@ would've probably paused for a second longer before committing to a last ditch m
 
 This leap was much more frantic and desperate than his previous time. His angle had been much more aggressive since he
 didn't want to leave anything to chance. The cable caught him across his chest and he swung back and forth laterally
-with his left arm over it a few times. He was about to swing his legs up and begin his **clamber** to freedom when he
+with his left arm over it a few times. He was about to swing his legs up and begin his ~~clamber~~ to freedom when he
 felt the cable violently shake and a grunt from next to him.
 
 He turned in horror to see the woman had leapt in front of him. She had aimed past him, further towards the center, and

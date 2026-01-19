@@ -14,10 +14,10 @@ even more when other people were present. It was a sign of weakness where he cou
 passengers ignored him and stood were they were. He waited until one of the juniors scooted back a few inches and he
 took his place at the front. The door closed silently and the hum of the motors continued as they all ascended. Others
 got out before him, and they all had to awkwardly squeeze around him, but he didn't budge. They hadn't offered any
-**difference** to him, so he was intent on reciprocating their attitude. The steel box, with its steel floors and black
+~~difference~~ to him, so he was intent on reciprocating their attitude. The steel box, with its steel floors and black
 accents ascended higher until it reached the 65th floor. He saw the last passenger raise her eyebrow slightly when she
 saw him get off, having only just now recognized the floor. He ignored her and confidently strode across the dark grey
-carpeting. He crossed the **entry** and made for the room that made everyone's skin crawl. He had to focus on where he
+carpeting. He crossed the ~~entry~~ and made for the room that made everyone's skin crawl. He had to focus on where he
 was going as the lights were purposefully dimmed here. The official reason had been designed "security", but everyone
 suspected it was to intimidate anyone who visited.
 
