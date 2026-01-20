@@ -341,11 +341,11 @@ at the wasted spirit. Lifting the glass to her mouth, she paused. She was lookin
 even the light of a peeking sun on the horizon. It was pitch black out. Andrea felt confused. She'd never seen the sky
 so dark, or even the city.
 
-"Powers out?", she asked herself. But her kitchen light was still on, so it must be everywhere else? That didn't make
-any sense. She stood up and walked over to the window, drink still in hand. She stood at her window looking out, and
-what she saw made no sense. It was an inky void, swirling and moving like some black sheet rippling in the wind. Except
-it wasn't a sheet, and it engulfed the whole building. Andrea pressed her face against the glass, peering down as far as
-she could. She couldn't see anything below her, not even other lights from her building. Just empty.
+_Power's out?_ But her kitchen light was still on. _So it must be everywhere else?_ That didn't make any sense. She
+stood up and walked over to the window, drink still in hand. She stood at her window looking out, and what she saw made
+no sense. It was an inky void, swirling and moving like some black sheet rippling in the wind. Except it wasn't a sheet,
+and it engulfed the whole building. Andrea pressed her face against the glass, peering down as far as she could. She
+couldn't see anything below her, not even other lights from her building. Just empty.
 
 She pulled away, unsure what to do. She went to grab her phone, check for strange weather notifications, or something on
 the socials. She turned away to grab it when she was speared by a great beam of light. She turned back to the window,
@@ -366,27 +366,31 @@ There was a figure. It was human, but covered in a cloak made from a torn piece 
 covering their face, but Andrea could tell it was a man. He stood motionless, frozen just like her. For a second she
 thought it was one of those freaks from earlier, but this was different. Underneath his tarp he wore rags and was
 covered in mud. He was hunched but not from age. She had locked eyes with him, and he had locked eyes with her. His eyes
-weren't pins of pale reflections, but dull and almost half out of focus. He was looking directly at her, but she felt he
-was somehow looking past her.
+weren't twin pins of pale reflections, but dull and almost half out of focus. He was looking directly at her, but she
+felt he was somehow looking past her.
 
 She took a half breath, careful not to break eye contact.
 
-"Don't", the mans said, steadily.
+"Don't", the mans said steadily.
 
 It was too late. Andrea had half dove, half crouched to the gun resting on the couch. The barrel was already pointing in
 roughly the right direction, she just had to flip it over, thumb the safety, pump the handle, and pull the trigger. It
 was a lot of things to do in series, and a less experienced person would've fucked it up. She was better than that. In
-one smooth motion she did all that, and a deafening _boom_ erupted from the barrel. She caught the intruder across the
-face, putting a huge tear in his tarp, and scoring a direct hit across the side of his head. The wall behind him
-exploded, and dust washed down onto him. Ears ringing, Andrea racked the slide again, and raised the gun to her
-shoulder. The dust obscured her view, but she could see he was still standing. Rather than blindly pump another round
-she waited for the dust to clear, figuring his body had yet to fully recognize it's own death. The dust slowly ceded,
-and Andrea saw the wound she had made. Hood decimated, she saw his head had split open, revealing the obliterated gore
-inside. His skin was pale, practically grey, and she could see that she caved in half his head from eye to jaw. He stood
-there, motionless. He hadn't moved except to tell her not to kill him. She took a step closer. He didn't collapse, and
-he didn't bleed all over her floor. She took another step closer, her gun almost touching the man. His eye, the only one
-left, tracked her and she went to pull the trigger again, but his hand jerked up and grabbed the barrel. A jolt went
-through the gun and she yelped, involuntarily letting go of it.
+one smooth motion she did all that.
+
+**boom**
+
+Fire and smoke erupted from the barrel. She caught the intruder across the face, putting a huge tear in his tarp, and
+scoring a direct hit across the side of his head. The wall behind him exploded, and dust washed down onto him. Ears
+ringing, Andrea racked the slide again, and raised the gun to her shoulder. The dust obscured her view, but she could
+see he was still standing. Rather than blindly pump another round she waited for the dust to clear, figuring his body
+had yet to fully recognize it's own death. The dust slowly ceded, and Andrea saw the wound she had made. Hood decimated,
+she saw his head had split open, revealing the obliterated gore inside. His skin was pale, practically grey, and she
+could see that she caved in half his head from eye to jaw. He stood there, motionless. He hadn't moved except to tell
+her not to kill him. She took a step closer. He didn't collapse, and he didn't bleed all over her floor. She took
+another step closer, her gun almost touching the man. His eye, the only one left, tracked her and she went to pull the
+trigger again, but his hand jerked up and grabbed the barrel. A jolt went through the gun and she yelped, involuntarily
+letting go of it.
 
 "Don't", the man said, wearily this time, clearly exhausted.
 
@@ -413,7 +417,7 @@ about it, but she understood the look he'd given her. She wasn't sure what to do
 she'd gotten home it seemed.
 
 "How about you get the", she stopped halfway through and paused for a heartbeat. This man was clearly capable, and maybe
-even dangerous. He ws probably some escaped experiment, or like those religious freaks. It snapped together. That suit
+even dangerous. He was probably some escaped experiment, or like those religious freaks. It snapped together. That suit
 leading those freaks had mentioned they were looking for someone. It had to be this guy. Her brain rapid fired through
 several different scenarios, desperately trying to find ways to turn this to her advantage.
 
@@ -429,6 +433,8 @@ herself with both hands, and then reversed the gesture towards the man. "And you
 
 "I'm... I'm Alva... I'm Hector", he said, the words spilling out him half formed. "I am Hector, and I need to find him.
 We need to find him. You can trust me. I can help you."
+
+// todo: integrate this changeover better. Andrea doesn't want his trust just yet
 
 That was strange, she had been halfway to saying the same thing to this Hector guy.
 
@@ -458,9 +464,9 @@ watched him walk towards her door. He stopped in front, and stood there in his m
 Without taking her eyes off Hector, Andrea fished her phone out of her pocket. There was a business card stuck to the
 rear of it. Andrea twisted her hand around, puzzled. Her blood ran cold as she slowly read the title in bold serif font.
 
-> Church of Evolution
+"Church of Evolution"
 
 Her blood ran cold. She had no clue how that had gotten there. Her phone buzzed again, imploring her to check on it. She
 twisted her hand back and held her phone level with Hector and tapped the screen to check her notifications. She saw
 that her tracker had activated, and that it was on the move. Her brain cycled several ideas at once, but the most
-important one came last. That idea was her solution to all this mess.
+important one came last. A solution to all this mess.
