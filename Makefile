@@ -15,7 +15,12 @@ format: ## Format all the *.md files in this repo
 	@yarn run prettier -w ./**/*.md ./*.md
 .PHONY: format
 
-counts.txt: ./book/*.md ## Update the [counts.txt] file from all the [./book/*.md] files
+clean: ## clean any codegen files
+	@rm ./counts.txt
+.PHONY: clean
+
+BOOK_FILES := $(wildcard ./book/*.md)
+counts.txt: $(BOOK_FILES) ## Update the [counts.txt] file from all the [./book/*.md] files
 	@./scripts/word_count.sh ./book/*.md > ${COUNT_FILE}
 	@awk 'BEGIN {sum=0} { sum+=$$1 } END {print sum}' ${COUNT_FILE} >> ./${COUNT_FILE}
 	@cat ${COUNT_FILE}
