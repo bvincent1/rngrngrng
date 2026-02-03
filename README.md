@@ -21,6 +21,8 @@ mean the difference between survival and total destruction.
 2. [the meeting](./book/chapter2.md)
 3. [nobody knows anymore](./book/chapter3.md)
 4. [best laid plans](./book/chapter4.md)
+5. [ragtag team](./book/chapter5.md)
+6. [push and pull](./book/chapter6.md)
 
 ## Formatting
 
