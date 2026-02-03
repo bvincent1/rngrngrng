@@ -1,6 +1,6 @@
 ---
-title: basement dwellers
-description: The team assembles and breaks into the church of evolution
+title: ragtag team
+description: The team assembles
 ---
 
 > UNII Corps log date 2327-09-30-0445 1hr later
@@ -199,7 +199,7 @@ even turning to look at him.
 
 There was a a pause.
 
-"Andy"
+"Andrea"
 
 Del stood there, trying to consider his options. He knew she was right. And even more, this guy had known the password
 they'd needed. It was obvious he was ou of his league. He'd made so many mistakes, and risked Rikki, and himself in
@@ -222,7 +222,7 @@ later, and Del pushed the door open the rest of the way.
 The lighting had evened out somehow, and it wasn't dark in the hallway anymore. Del stood there, and did his best to
 retain his composure in front of these strangers. _Must be the blood loss._
 
-"I see you've got a gun now." Andy commented sourly.
+"I see you've got a gun now." Andrea commented sourly.
 
 She was wearing the same outfit he'd seen earlier, but without a face scarf. There was a satchel bag over her shoulder
 now, and Del thought about searching it. Something about the look on her face made him ignore that thought.
@@ -231,26 +231,84 @@ now, and Del thought about searching it. Something about the look on her face ma
 
 "What??" Del asked.
 
-"I don't know... but he's been useful so far" Andy responded with the same sour tone as she'd given him.
+"I don't know... but he's been useful so far" Andrea responded with the same sour tone as she'd given him.
 
 The man, stepped forwards, un-beckoned and lightly pushed Del aside. Del startled and went to bring up his gun, when
-Andy spoke up defensively.
+Andrea spoke up defensively.
 
 "He's harmless." and then in a friendlier tone, "Relax. We're on the same side now. Besides, we both know you can take
 me in a fight."
 
 That comment reminded Del how he probably couldn't take her, and she knew it. He looked down at the gun on her hip, and
 decided it wasn't worth the effort to pretend anymore. He tucked the pistol away on his back, and fully pulled the door
-open. Andy stepped in and he watched as she did a quick scan of the place. He watched her focus on Rikki for a second,
+open. Andrea stepped in and he watched as she did a quick scan of the place. He watched her focus on Rikki for a second,
 before stepping to the table. Del quickly shut the door behind her, and spent a few seconds bolting it shut. He debated
 leaving one undone, but figured he should oblige Rikki and bolt it down all the way.
 
-"This your work?" Andy gestured at the shelves and piles all over.
+"This your work?" Andrea gestured at the shelves and piles all over.
 
 "No, it's mine." Rikki responded, still focused on reading the newly revealed files. "Don't touch anything. Del might
-trust you, but I don't." She added, clearly trying to sound menacing, but failing somewhat.
+trust you, but I don't", clearly trying to sound menacing, but failing somewhat.
 
-"Del... Gotcha." Andy looked him up and down, and then went to his jacket, still crumpled on the chair at the table.
+"Del... Gotcha." Andrea looked him up and down, and then went to his jacket, still crumpled on the chair at the table.
 
 Del was about to object, when he saw her reach into the chest pocket and retrieve a small metal disk. He felt a flash of
-anger, and then embarrassment as he instantly knew how they'd found him, and how truly careless he'd been.
+anger, and then embarrassment as he instantly knew how they'd found him, and how truly careless he'd been. _Ignore it.
+Push it down._ Del snapped around, looking for the guy she'd brought. This 'Hector' had wandered over to the monitors,
+and was staring at one of them. Rikki had stopped her obsessive research, and was watching him as well.
+
+"We're not alone anymore F-", Hector dropped off before he finished.
+
+"So... I think I've got something" Rikki piped up.
+
+Del paused for a second. For a second he heard Hector finish that sentence, and he was having a hard time rectifying
+that he hadn't actually heard it.
+
+"Your friend here was correct with that password, but I only got some of the files. It looks like this 'Lili' was either
+working with or working for some... church." Rikki expressed with a fair degree of confusion. She shot Del a confused
+look, expecting some sort of explanation.
+
+"What are you looking at me for. She was there too!" he pointed at Andrea.
+
+"Yeah, but did you see anything to back this up?" Rikki asked.
+
+"No, nothing religious", Del responded.
+
+"I didn't see anything religious either, in case you care." Andrea commented from the table.
+
+She was sitting on the edge of the table, staring at Rikki. Del could tell these two were going to a problem if he left
+them alone together. He didn't really trust Andrea either, but he at least could pretend until they got what they
+needed.
+
+"Absolutes don't work", Hector mumbled.
+
+He was still facing the monitor, but Del could tell he was focused on something else.
+
+"We don't care, thanks" Rikki chirped at Andrea. "And whats his deal? Some sort of drug burnout? How did he know about
+the password?"
+
+"He's helping us find this woman. He's an agent assigned to me", Andrea said. "Ignore his babbling. What's the name of
+this church?"
+
+Rikki made a disapproving look first at Hector, then at Andrea, then back to Hector.
+
+// todo: elaborate Andrea's motivations, and make it more believable that she's invested in the outcome of this job
+
+"The Church of evolution. Never heard of it before", Rikki said.
+
+The name sounded familiar to Del, but he couldn't place where he'd heard it. He didn't really bother with religion, it
+always seemed too out there. Too much of a human willingness to trust in a higher calling. _Never be the hero, stay
+calm, work it slow_ he could hear himself quoting. He put his faith in people. Deserving people.
+
+"Hallowed ground is sacred to all", Hector mumbled again. "I think we should go. Find this church. Find the link between
+them." Hector said, this time much more lucidly.
+
+Hector snapped around and looked directly at Del. Del could feel the sudden intensity of this man, this stranger. It was
+like a whole new person had suddenly possessed him. Del felt unnerved by the stare, looked away, and he quickly realized
+everyone was staring at him. He was in charge, not by any merit, but by some factor Del couldn't figure. Outwardly he
+tried to appear calm, and composed, but inwardly he was panicked at the sudden responsibility he'd gained. The thought
+of letting everyone down, terrified him more than any other challenge he'd faced today. He'd seen people break under the
+weight of responsibility, and he'd seen the toll that it took on those strong enough to bear it. He didn't want this,
+but then again he had no choice. _Do the company proud with this one._
+
+"Let's go to church"
