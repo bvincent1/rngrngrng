@@ -78,12 +78,35 @@ Del didn't particularly believe her.
 "We should try the back, see if theres any way in."
 
 "It wont be any less guarded than the front. Just look at this place!", she gestured dramatically towards it. "Anything
-we find is gonna just as locked down, or guarded as if we'd walked up in blazing lights. Besides, we're running out if
-time. We should get this done now, and quickly. I'll do the talking since it's clear that's ot your department. I can
-get us what we want without your help, and definitely without your flair for drama."
+we find is gonna be just as locked down, or guarded as if we'd walked up in blazing lights. Besides, we're running out
+of time. We should get this done now, and quickly. I'll do the talking since it's clear that's not your department. I
+can get us what we want without your help, and definitely without your flair for drama."
 
 _We're still alive aren't we_ Del bit back. He paused and tried to collect his thoughts. What she was proposing was a
 bad idea. There was something she wasn't telling him. Something he didn't know. He racked his brain, trying to force the
 picture into focus, but he was too sleep deprived, and still sore. He took a step back and did his best to concentrate.
 
-"You go first, then I'll follow." he said.
+"You go first, then I'll follow," he said.
+
+Andrea paused, clearly debating internally how he might be screwing her. Narrowed her eyes and took a longer look at
+him. He felt like she was trying to see past his features into the inner workings of his mind. She would try and sus out
+the details of what and how he was going to rip her off. She clearly saw right through him, because after a moment of
+intense staring, she looked away and back towards the temple.
+
+"Works for me, but I'm taking Hector with me"
+
+Del turned back and considered what this man had to offer to her. Hector clearly knew about Lili, and he probably knew
+more about all of them. He looked sick, the grey skin and sunken eyes giving him the look of a corpse. Del noticed some
+lines on Hector's face that looked like scars, but had healed in strange angles. Hector caught his gaze, and nodded to
+the temple.
+
+"We can make it work. Just make sure to hit the ground running."
+
+"Sure," Del said. Not sure what to make of Hector's comments. _What is with this guy?_ Andrea let out a small breath and
+nodded to Hector. Without another word she stepped out from their cover and Hector followed. Del noted that they weren't
+rushing, but he could see Andrea scanning the surroundings, clearly wary.
+
+Del took a minute to check his weapon. He reached underneath his jacket and pulled out the pistol. He still had a round
+chambered from earlier, and he figured he'd leave it that way. He ejected the clip part way, to double check the count,
+clicked it back into the grip, and tucked it back into his belt underneath his jacket. He tapped the slight bulge in his
+pants pocket to comfort himself that he had an extra mag. He missed his old weapons, but he knew they'd only been tools.
