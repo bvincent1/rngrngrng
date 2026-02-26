@@ -109,4 +109,36 @@ rushing, but he could see Andrea scanning the surroundings, clearly wary.
 Del took a minute to check his weapon. He reached underneath his jacket and pulled out the pistol. He still had a round
 chambered from earlier, and he figured he'd leave it that way. He ejected the clip part way, to double check the count,
 clicked it back into the grip, and tucked it back into his belt underneath his jacket. He tapped the slight bulge in his
-pants pocket to comfort himself that he had an extra mag. He missed his old weapons, but he knew they'd only been tools.
+pants pocket to comfort himself that he had an extra mag. He missed his old weapons, but he knew they'were long gone by
+now. Besides, they had been tools. Replaceable.
+
+He lingered on that thought, when a loud whistle interrupted him. He silently cursed Andrea. Looking across she was
+partially obscured behind a pillar, but he could se her waving him to the front door. She was standing part ways
+through, the door ajar. He steeled himself, and crossed the gap. He ducked behind a pillar, willing himself to blend
+into the cold concrete, to become part of it. He wanted to embrace the cold implacable sturdiness. He wanted to be like
+concrete, even when he felt the opposite. He settled on his capabilities as a ghost. The darkness seemed to suit him
+better anyways. Crossing between pillars, huddled in the shadow, he arrived at the doors. The whole front of the
+building was glass, and at this distance Del could see that the roof was as well. Even in the dark early morning, glare
+kept him from seeing much past the doors, and the ceiling. He felt like he going to be swallowed by the building. There
+we no lights, inside, no points of movement, and no sources of human warmth. He couldn't even make out where Andrea and
+Hector were, beyond that thick pane of glass. _No way out, but through._
+
+Del opened the door and stepped inside, light as a cat, and stepped to the side, doing his best to melt into the shadow
+of the pillars outside. The first thing he noticed was the cold, and it took his breath away. Outside it had been the
+usual cold and damp that they were all used to. In here it was dry, but almost icy. He saw his breath fog in front of
+him, and thought of the winters from years past. The layout of the building took more of his breath away. It was a pit.
+Or maybe more like a bunker. Outside it had been all imposing concrete and glass. Angled and blocky, but still an
+imposing ~~feeling~~ as far as architecture goes. Inside it was still blocky, with a few benches, some offices at the
+far walls, and some waist high cubes as decorations, but the space was dominated by the vast empty space at the center.
+He walked closer, and each step filled him with dread as he watched the ground fall away, deeper and deeper into the
+earth. It was all concrete, but as he got closer he couldn't help but wonder if the bottom would be dirt. He reached a
+railing, and even in the dark, felt the vastness of the earth opening up bellow him. Sharp angles in the concrete, and
+steep stairs gave him the distinct feeling that they were in far too deep, but were about to be condemned to go further.
+Despite all that, he almost didn't notice it. The cold made it hard to smell anything, but he couldn't help but notice a
+sharp odor in the air. It might've wafted up from bellow, but he couldn't tell for sure. He sniffed deeply to get a
+better sense of it, and he couldn't pin it down. A sharp tang, like fuel, mixed with a sweet, but chemical scent.
+
+"Taking in the view?" Andrea asked.
+
+Del didn't jump, but she had startled him slightly. He'd gotten lost in it all, and hadn't thought to check up on her.
+She seemed unfazed by it all, or she as just more practiced at hiding it. He figured it was the latter.
