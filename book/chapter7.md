@@ -140,5 +140,48 @@ better sense of it, and he couldn't pin it down. A sharp tang, like fuel, mixed 
 
 "Taking in the view?" Andrea asked.
 
-Del didn't jump, but she had startled him slightly. He'd gotten lost in it all, and hadn't thought to check up on her.
-She seemed unfazed by it all, or she as just more practiced at hiding it. He figured it was the latter.
+Del didn't jump, but she had startled him. He'd gotten lost in it all, and hadn't thought to check up on her. She seemed
+unfazed by it all, or maybe she was just more practiced at hiding it. He figured it was the latter.
+
+"Thinking of jumping." Hector chimed in.
+
+Del and Andrea turned in disbelief towards the orchestrator of the joke. Hector, the very definition of stoic and
+unapproachable, for all the wrong reasons, had just cracked a master class joke exhibiting perfect use of tension and
+comedic timing. Del was carefully analyzing Hector's face for even the slightest hint of emotion. Some sort of crack in
+Hector's armor of anti-personality and savant level disconnect. But there was nothing.
+
+He turned away and checked their surroundings one last time, sure that the only answers would be at the bottom of this
+pit. He suddenly felt very tired, and he dreaded the thought of what lay at the bottom. He looked around at the lobby
+concrete and glass. Hopping to catch a glimpse of human somewhere. Someone he could get Andrea talking to, and avoid
+this whole descent that left him with a bad feeling. He trusted his gut, and everything in it was telling him to run
+away.
+
+**click click**
+
+"Did you hear that?" Andrea asked him, her tone ice cold.
+
+"No... what did you hear?" Del asked
+
+Andrea was looking directly across the pit, head tilted slightly. She had a terrified look on her face, and Del felt
+even more compelled to leave. _Fuck this. Fuck that. I'll get the money some other way. I'll just make it up to Rikki._
+
+"Never mind. He's right though, nobody's up here. Have to go down."
+
+"What makes you so sure?" Del asked.
+
+"Look, I don't have the time to explain all the details, but I called ahead." Andrea snapped at him.
+
+Del was incredulous. His stomach dropped, and he spun round, now fully confident that they were being watched.
+
+"Fucking what! You told them we were coming? When were you gonna let the rest of us know? After you gave us up or
+something? What did you even tell them?" The stream of anger poured out of Del. He's been on the fence about this woman
+ever since the start, but now he was sure she had been working an angle the whole time. He rapidly scanned the glass
+windows and then checked the roof above them, convinced he'd been sold out and he'd walked willingly into a trap.
+
+"Would you fucking stop." Andrea clenched her teeth. She stepped closer and whispered "Relax. It's not you they want."
+
+They made eye contact, and she glanced towards Hector. Del wasn't sure they were out of earshot, but Hector didn't seem
+to care. _So why bring me into this?_ He relaxed a bit. Still on edge now that the game had been given up, but at least
+he knew he wasn't the one on the hook.
+
+"Come one. Down we go." Andrea beckoned them onwards and started descending the nearest staircase.
