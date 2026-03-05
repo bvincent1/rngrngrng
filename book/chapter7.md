@@ -184,4 +184,39 @@ They made eye contact, and she glanced towards Hector. Del wasn't sure they were
 to care. _So why bring me into this?_ He relaxed a bit. Still on edge now that the game had been given up, but at least
 he knew he wasn't the one on the hook.
 
-"Come one. Down we go." Andrea beckoned them onwards and started descending the nearest staircase.
+"Come one. Down we go." Andrea beckoned them onwards, not waiting for him to question her further. Clicking on a
+flashlight, she started descending the nearest staircase, and Hector doggedly followed. Nothing made sense. This woman
+he didn't know held all the cards, and was working for herself. She was only telling him what he needed to know, and
+keep the rest to herself. This was why he preferred working alone. Nothing was going according to plan, and he had half
+a mind to get out now. Del suppressed a scream. _No way out but through._ He made to follow them, taking what hopped
+wouldn't be his last breath of fresh air. Del willed his gut to submit, and shut off his common sense. None of that
+would help.
+
+Their descent was quiet and uneventful, much to Del's dismay. They zig-zagged down what felt like a dozen flights. Their
+descent slowly angled underneath the building until the sky was no longer above them, but eclipsed behind the ever
+ominous concrete pillars and slopes. Del could see cables and pipes sprouting from the ceiling in random groups, only to
+disappear into vents, gap, or even straight through fitted exhausts in the concrete. Despite their descent, the
+temperature stayed crisp and cold. He periodically saw his breath fog up in front of him, and even noticed it spooling
+out from around outcroppings in the concrete. Del couldn't imagine what sort of church would subject it's members to
+this sort of treatment. Maybe it was representative of something, but Del couldn't imagine what. He'd never really
+gotten into religion. It was promising, sure, but he'd grown up having to put his faith in the people beside him. They'd
+always been there, and he'd been their for them. At least, he had been. Past tense. Now he was grouped with a bunch of
+strangers, each one with their own agenda. Rikki was on his side, but he was certain she had her own motivations. Who
+was he to judge them. He was in the same boat, in a way he'd always been. In the past he hadn't had to worry about this,
+but now it was him and only him. He was here for the money, just like them. Maybe not Hector. Del still had no clue what
+drove that guy to be here.
+
+Their descent slowly leveled out. The inconsistent stairs made it harder, but Del estimated they'd gone down four or
+five floors worth. _Fuck going back up that way._ Del noticed Andrea had paused ahead and was scanning back and forth.
+Their were several corridors branching off from the main pit they'd been following. She seemed to be trying to orient
+herself in order to pick out which way to go.
+
+"Which was is it?" he asked, doing his best to be nice given the circumstances.
+
+"I'm thinking." She responded, frustration leaking through her composure.
+
+"Well, that way's north." Del pointed off towards their left. He noticed the pit was actually angled slightly. True
+north was just off from where the hallway lead off to. _That's strange._
+
+"Oh. Thanks." Andrea respond, and Del thought he could detect a note of ~~apology~~. "That the way then." She gestured
+with her flashlight in the opposite direction.
