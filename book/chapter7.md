@@ -218,5 +218,68 @@ herself in order to pick out which way to go.
 "Well, that way's north." Del pointed off towards their left. He noticed the pit was actually angled slightly. True
 north was just off from where the hallway lead off to. _That's strange._
 
-"Oh. Thanks." Andrea respond, and Del thought he could detect a note of ~~apology~~. "That the way then." She gestured
-with her flashlight in the opposite direction.
+"Oh. Thanks." Andrea respond, and Del thought he detected a hint of thankfulness. "This way." She gestured with her
+flashlight towards the hallway in the opposite direction. Del turned and started strolling ahead of her.
+
+**click click**
+
+"Ahh!" Andrea spun around, and pointed her light towards the yawning expanse they'd just descended. "Did you hear that?"
+
+She sounded startled, like she was expecting something to jump out at them. "No." Del answered, unsure if he was
+correct. He could hear the pipes, and the whine of electrics, but he couldn't hear whatever Andrea was jumping at. He
+did his best to believe her, but something still felt off. This place felt empty. Void. As far as he could tell, they
+were the only ones here. It bothered him, but not as much as it was worrying Andrea. He tilted his head and opened his
+mouth to get a better reading. Putting all his focus into his sense, he tried to isolate the different sensations while
+filtering out the noise. He strained his hearing to the limit, but he couldn't identify anything. Then he could. He
+didn't hear it, but he smelt it again. That strange unidentifiable scent he noticed earlier. There it was, on the tip of
+his tongue. The acidic note was stronger now, but he could still detect a hint of fuel. Some sort of combustible fuel if
+he was judging correctly. "Do you smell that?" he asked, half regretting voicing his thoughts in front of these people.
+
+"Ugh..." Andrea trailed off, and then took a quick sniff. She paused, and then did another sniff. "I can smell
+something. Is it gas?"
+
+"Chemical reactions in the body. Breaking down tissues- you should keep going." Hector said in his usual monotone. Del
+hadn't been paying much attention to him, but he noticed Hector was glancing around wildly. Well more wildly. It kind of
+looked like he was following something in the pipes.
+
+"Shit. Well aren't you a comedic genius." Andrea answered dryly.
+
+Del wasn't sure what Hector was on about. This guy hardly seemed the type to crack jokes, but here he was consistently
+delivering them. This one was certainly a miss. Andrea breathed a sigh of exhausting. "Wait." Del said, and he
+immediately regretted the words as they came out if his mouth. "I'm gonna check this out. You two wait here."
+
+"Why would we do that. Why would you do that!" Andrea snapped at him.
+
+She was rilled up, Del could tell, but he hardly felt she was justified. She was really starting to annoy him with her
+obvious temper. He hated working with hotheads, and this one was getting old fast. In his line of work, patience had
+been key to success. How she'd made it this far was beyond him. "I think Hector is trying to tell us something... in his
+own special way."
+
+"And you trust him? Him over me?" Andrea stepped forwards, shifting her bag slightly.
+
+Del had totally forget about her bag. He knew that look though. Even in the dim light, he could tell she had fire in her
+eyes. She was mentally prepared to go as far as she needed to to get what she wanted. He had to tread carefully.
+
+"I don't trust either of you, but it's clear there's something here. I'm not going to start anything, I'm just going to
+check up ahead. In and out, nobody will know I'm there. Even you can't contest me on that." He inwardly cringed, trying
+to self justify his skills. "Listen, it's clear you know some of what's going on, but I think your out of your league.
+We need to even the odds, so let me scout it out, and then we can move in prepared." _That sounded better._ Andrea
+paused, clearly thinking it over. Hector didn't even acknowledge him.
+
+"Kid's got a point." she said to no one in particular. "Fine, you take point, and we'll follow. You military types are
+always the same. Tip of the spear and all that." She shifted her bag again, but Del felt a bit better about now.
+
+"Fair, but give me a little breathing room. Your light is gonna give us away." He said.
+
+Del started down the tunnel.
+
+"Wait. Give me your contact info." She started phishing her phone out of her pocket.
+
+"There's no signal this deep." Del didn't even bother digging out him phone. "Here, two flashes means all clear, one
+means danger. Simple enough."
+
+Andrea paused. "Simple enough."
+
+With that cleared up, he spun around and disappeared down the hall. _Or maybe it was a tunnel._ Either way, Del felt
+better breaking away. He'd always been on the edge of people, groups, groups of people. It was rare for him to involve
+himself, or be involved by others. This crew certainly wasn't either of those options.
