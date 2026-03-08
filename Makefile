@@ -24,3 +24,9 @@ counts.txt: $(BOOK_FILES) ## Update the [counts.txt] file from all the [./book/*
 	@./scripts/word_count.sh ./book/*.md > ${COUNT_FILE}
 	@awk 'BEGIN {sum=0} { sum+=$$1 } END {print sum}' ${COUNT_FILE} >> ./${COUNT_FILE}
 	@cat ${COUNT_FILE}
+contractions.txt: $(BOOK_FILES) ## Update the [contractions.txt] file from all the [./book/*.md] files
+	@./scripts/detect_contractions.sh ./book/*.md > ${CONTRACTIONS_FILE}
+	@cat ${CONTRACTIONS_FILE}
+
+
+contractions: contractions.txt ## alias for [contractions.txt]

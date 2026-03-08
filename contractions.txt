@@ -1,0 +1,40 @@
+Contractions found in: ./book/chapter0.md
+---
+
+Total unique contractions:       26
+Total contraction occurrences:       58
+Contractions found in: ./book/chapter1.md
+---
+
+Total unique contractions:       28
+Total contraction occurrences:       72
+Contractions found in: ./book/chapter2.md
+---
+
+Total unique contractions:       45
+Total contraction occurrences:      230
+Contractions found in: ./book/chapter3.md
+---
+
+Total unique contractions:       31
+Total contraction occurrences:      139
+Contractions found in: ./book/chapter4.md
+---
+
+Total unique contractions:       34
+Total contraction occurrences:      135
+Contractions found in: ./book/chapter5.md
+---
+
+Total unique contractions:       33
+Total contraction occurrences:      107
+Contractions found in: ./book/chapter6.md
+---
+
+Total unique contractions:       12
+Total contraction occurrences:       22
+Contractions found in: ./book/chapter7.md
+---
+
+Total unique contractions:       37
+Total contraction occurrences:      120
