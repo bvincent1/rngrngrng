@@ -189,8 +189,8 @@ flashlight, she started descending the nearest staircase, and Hector doggedly fo
 he didn't know held all the cards, and was working for herself. She was only telling him what he needed to know, and
 keep the rest to herself. This was why he preferred working alone. Nothing was going according to plan, and he had half
 a mind to get out now. Del suppressed a scream. _No way out but through._ He made to follow them, taking what hopped
-wouldn't be his last breath of fresh air. Del willed his gut to submit, and shut off his common sense. None of that
-would help.
+wouldn't be his last breath of fresh air. Del willed his gut to submit, and mentally shut off his common sense. None of
+that would help.
 
 Their descent was quiet and uneventful, much to Del's dismay. They zig-zagged down what felt like a dozen flights. Their
 descent slowly angled underneath the building until the sky was no longer above them, but eclipsed behind the ever
@@ -280,6 +280,52 @@ means danger. Simple enough."
 
 Andrea paused. "Simple enough."
 
-With that cleared up, he spun around and disappeared down the hall. _Or maybe it was a tunnel._ Either way, Del felt
-better breaking away. He'd always been on the edge of people, groups, groups of people. It was rare for him to involve
-himself, or be involved by others. This crew certainly wasn't either of those options.
+With that cleared up, he spun around and disappeared down the hall. Or maybe it was a tunnel at this depth. Either way,
+Del felt better breaking away. He'd always been on the edge of people, and groups. Groups of people. It was rare for him
+to involve himself, or be involved by others. This crew certainly wasn't that. These were the misfit offshoots, himself
+included. The corpo-headhunter, the anti-personality savant, and the lost scout. What a team they made.
+
+He took a deep breath, centered himself mentally, and he slunk deeper into the black. He phished his phone out, and
+selected a custom app that he'd asked Rikki for. Dim light spilled from the screen, and cast an eery glow in front of
+him. The pipes were getting denser and louder the further he went, but the temperature was still frigid. What little he
+knew about mechanics of being underground, and building infrastructure seemed to contradict what he was experiencing. He
+was clearly headed towards a locus of sorts, and that made him think of pumps, or machines, or something to generate
+heat and motion. But the cold persisted. Climbing over pipes, and ducking under conduits he felt the slow pulse of the
+metal veins. This building was purposeful, but it's purpose was outside his comprehension. It felt like a contradiction
+of physics and space. The looming presence, but bereaved of soul. The pumping veins, but absent of heat.
+
+Del felt his chest tighten with anticipation. Something was ahead. He pocketed his phone, and waited. There was an arch
+with a dim light above it in the hue of barely used exit. Fog was spilling out of it like it was part of some sort of
+bad set piece. Del edged closer to the arch. Just underneath, in the leeway, there was a metal door. It was ajar and
+gave him the distinct impression, that it was purposefully like that. Del inched closer, hugging the far wall, and the
+pipes lining it for cover. He wasn't about to give himself away by silhouetting against that light. He felt for his gun,
+still tucked into his belt. _Here's a conundrum._ Del glanced back, questioning to himself wether he should proceed
+without Andrea. He slowly drew the pistol from his belt, careful to keep it close to his body, and out of the light.
+Part of him wanted to wait, play it safe, but the other part felt bad for Hector. He'd had mixed feelings since Andrea
+had hinted her plan, but now he was at the threshold. Here was were it the decision would be sealed. Del had never
+sacrificed someone like this, and he'd never wanted to be in the position to do it. That kind of responsibility felt
+like it'd weigh him down for the rest of his life. But hear he was, about to sacrifice someone who he had only met hours
+ago, and who'd done but the barest of help for him. He felt torn. He knew the right answer. The heroic one. Del wanted
+to be that person. Del wanted to be a hero like all the people he had known. All those who had helped him. He wanted to
+do right by them, and their memory. But he wasn't dumb either. He knew that heroics only got you so far. Sometimes you
+had to make tough calls. So hear he was about to make the tough call.
+
+**Click click click**
+
+He heard that. This time he heard it. He was sure of it. It had come from the door. That ominous door had just gone from
+simple threshold to cavernous maw. Del felt himself take a step forwards. Then another. He was draw towards it, like a
+moth to the flame. Drawn to his own destruction, not out of stupidity, but some misappropriated sense of heroism. He
+stopped, standing literally at the edge of darkness. He knew what he was doing, and he knew it was right. For all he
+knew this was just another doorway. How was he to know this was it. _No way out but through._ He committed himself to it
+now. Del dropped low, and instead of walking to the door, skirted around the edge of the light. Now opposite the way
+he'd come, he sidled up to it, and made to peek at the tiny window embedded in the center. In one smooth motion he
+centered his gun, and stood to level with the window. Inside he made out shapes, and dim light. He quickly ducked back
+down, and mentally extracted as much as he could from the snapshot image. There were rooms, at the edges, and cables
+running everywhere. The lights were speckled all over the room, but they hadn't looked to be moving. They were dim, and
+he thought he'd maybe seen one blink. All in all, it seemed workable. He felt the blood in his veins pump, and he willed
+himself to be calm. The calmest he'd ever been. He was against the door, but he'd have to open it more to squeeze
+through. He breathed deep against, tucked his gun close, and reached for the door itself, instead of the handle. He
+grasped the cold metal and forcefully pulled the door, then stopped it at what he hopped would be enough of a gap for
+him to squeeze through. He waited, expecting some sort of noise or movement from the other side. Wait. Wait. Nothing.
+
+He let out the breath he had been holding.
