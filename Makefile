@@ -1,5 +1,6 @@
 
 COUNT_FILE="./counts.txt"
+CONTRACTIONS_FILE="./contractions.txt"
 
 help: ## Show this help
 	@echo "\nSpecify a command. The choices are:\n"
@@ -24,3 +25,5 @@ counts.txt: $(BOOK_FILES) ## Update the [counts.txt] file from all the [./book/*
 	@./scripts/word_count.sh ./book/*.md > ${COUNT_FILE}
 	@awk 'BEGIN {sum=0} { sum+=$$1 } END {print sum}' ${COUNT_FILE} >> ./${COUNT_FILE}
 	@cat ${COUNT_FILE}
+
+counts: counts.txt ## alias for [counts.txt]
