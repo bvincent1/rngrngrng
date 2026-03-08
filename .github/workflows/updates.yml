@@ -3,13 +3,15 @@ name: Format Markdown
 on:
   push:
     branches:
-      - 'main'
+      - "main"
+    paths:
+      - "book/*.md"
 
 jobs:
   format:
     # Use a recent Ubuntu runner
     runs-on: ubuntu-latest
-    
+
     # Optional: Prevents action from running on commits made by the bot itself
     if: github.actor != 'github-actions[bot]'
 
@@ -20,7 +22,7 @@ jobs:
       - name: ⚙️ Setup Node.js
         uses: actions/setup-node@v4
         with:
-          node-version: '20'
+          node-version: "20"
 
       - name: 📦 Install Dependencies
         run: yarn install
@@ -36,4 +38,4 @@ jobs:
         uses: stefanzweifel/git-auto-commit-action@v7
         with:
           # A clear commit message for the auto-formatting
-          commit_message: 'Auto-format Markdown files & update word counts'
+          commit_message: "Auto-format Markdown files & update word counts"
