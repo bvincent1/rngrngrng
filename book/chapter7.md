@@ -324,8 +324,43 @@ down, and mentally extracted as much as he could from the snapshot image. There 
 running everywhere. The lights were speckled all over the room, but they hadn't looked to be moving. They were dim, and
 he thought he'd maybe seen one blink. All in all, it seemed workable. He felt the blood in his veins pump, and he willed
 himself to be calm. The calmest he'd ever been. He was against the door, but he'd have to open it more to squeeze
-through. He breathed deep against, tucked his gun close, and reached for the door itself, instead of the handle. He
-grasped the cold metal and forcefully pulled the door, then stopped it at what he hopped would be enough of a gap for
-him to squeeze through. He waited, expecting some sort of noise or movement from the other side. Wait. Wait. Nothing.
+through. He breathed deep again, tucked his gun close, and reached for the lip of the door. He felt the cold riveted
+metal and grasped it. He felt how heavy it was, just by the width of it. Del paused, knowing he'd need two hands to do
+this smoothly. Tucking his gun back into his belt, he grasped with both hands. He waited, expecting some sort of noise
+or movement from the other side. Wait. Wait. Nothing. He let out the breath he had been holding. In one smooth motion
+Del stepped back and around, straight arming the door open enough to squeeze through, and return it to back to its
+original angle with him now on the inside. It wasn't textbook, but he didn't know how badly it would go for him until
+later.
 
-He let out the breath he had been holding.
+Del stepped to his immediate left and hugged the wall all the way to the corner of the room. He did his best to blend in
+with the shadows and shrink his profile. Once he made it to the corner he stopped and crouched low on his toes. He was
+loaded like a spring, ready to leap out of the way. His heart was racing, and his brain was trying to load his
+surroundings into focus. He was in a wide and tall room, made up of glass offices all along the edges. A veritable web
+of cabling lead from the walls and knotted itself into the center of the room. Pipes sprouted from odd directions and
+lead in equal parts to machinery and offices. Del turned slightly to see he was crouched next to one of the glass
+cubicles. Inside was nothing but scraps of trash, and dust. To his horror, he noticed the doors were bared from the
+outside. Heavy latches on steel beams spanning the doorways. These were cells, not offices. He glanced back at the
+trash, and noticed odd shapes of recognizable clothing. This was some sort of processing facility. The church was
+bringing people down here, and doing something to them in these cells. Del immediately felt his skin go cold, and his
+mind drifted to Hector, and he briefly imagined whatever hell was in waiting for him in here. Shaking himself, he slowly
+crept forwards. He had yet to see anyone yet, and he could hardly believe that anyone in these cells would be their
+contact.
+
+Step after step, the machinery slowly came into focus. As he got closer, the strange and irregular outlines materialized
+into recognizable shapes. It was fucking people. Del had seen some things before. Some terrible things, but this was on
+a new level. The cables from the ceiling came down in a wide tangled mess and at each end of the black plastic jungle
+vines was a person. Faces obscured underneath helmets and what he could only imagine pinpoint screens, people stood
+completely motionless. Like the product of some unholy fruit tree, the people attached to by their heads to the it, with
+the trunk inverted on the ceiling above them in some underworld mirror of the overworld above them. Dim lights lowly
+faded off and on, and Del could see just how vast they were. There had to be a hundred of them connected like this. Each
+was standing perfectly still upright, but slackened. Del felt his breath catch as he considered what exactly could be
+going on. They were being brainwashed. This church of evolution was fabricating it's members. All of these people were
+victims of some fucked up priest, or figurehead. Del felt his blood begin to boil as he contemplated what he would do to
+the orchestrator of this terrible crime if he ever got the chance to wright this wrong. His mind flashed back to some
+unfortunate soldiers him and his brothers had cornered in a past life. He would make them pay.
+
+Del used all the skills at his disposal to get right up to the stock still cattle. He made it to the first person at the
+edge, and did his best to examine the helmet they were unfashionably sporting. It was a gaunt man, older, but still
+healthy enough to walk by his judge. Del reached for the lid with both hands, intent on examining how securely it was
+mounted. By his measure, anyone at the edges would have been subjected to the least amount of torture and would be the
+most helpful. His hands inched closer and then he felt it.
