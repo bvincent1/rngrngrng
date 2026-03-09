@@ -317,20 +317,22 @@ simple threshold to cavernous maw. Del felt himself take a step forwards. Then a
 moth to the flame. Drawn to his own destruction, not out of stupidity, but some misappropriated sense of heroism. He
 stopped, standing literally at the edge of darkness. He knew what he was doing, and he knew it was right. For all he
 knew this was just another doorway. How was he to know this was it. _No way out but through._ He committed himself to it
-now. Del dropped low, and instead of walking to the door, skirted around the edge of the light. Now opposite the way
-he'd come, he sidled up to it, and made to peek at the tiny window embedded in the center. In one smooth motion he
-centered his gun, and stood to level with the window. Inside he made out shapes, and dim light. He quickly ducked back
-down, and mentally extracted as much as he could from the snapshot image. There were rooms, at the edges, and cables
-running everywhere. The lights were speckled all over the room, but they hadn't looked to be moving. They were dim, and
-he thought he'd maybe seen one blink. All in all, it seemed workable. He felt the blood in his veins pump, and he willed
-himself to be calm. The calmest he'd ever been. He was against the door, but he'd have to open it more to squeeze
-through. He breathed deep again, tucked his gun close, and reached for the lip of the door. He felt the cold riveted
-metal and grasped it. He felt how heavy it was, just by the width of it. Del paused, knowing he'd need two hands to do
-this smoothly. Tucking his gun back into his belt, he grasped with both hands. He waited, expecting some sort of noise
-or movement from the other side. Wait. Wait. Nothing. He let out the breath he had been holding. In one smooth motion
-Del stepped back and around, straight arming the door open enough to squeeze through, and return it to back to its
-original angle with him now on the inside. It wasn't textbook, but he didn't know how badly it would go for him until
-later.
+now. Del dropped low, and instead of walking to the door, skirted around the edge of the light.
+
+Now opposite the way he'd come, he sidled up to it, and made to peek at the tiny window embedded in the center it of. In
+one smooth motion he centered his gun, and stood to level with the window. Inside he made out shapes, and dim light. He
+quickly ducked back down, and mentally extracted as much as he could from the snapshot image. There were rooms, at the
+edges, and cables running everywhere. The lights were speckled all over the room, but they hadn't looked to be moving.
+They were dim, and he thought he'd maybe seen one blink, but sll in all it seemed workable. More fog wafted out from the
+doorway, and he smelt that strange odor again. Whatever it was, it was certainly concentrated in their. flexing his grip
+on the pistol he felt his heart pounding, and the blood in his veins pump He willed himself to be calm. The calmest he'd
+ever been. He was gently pressed against the door, tucked low, but he'd have to open it more to squeeze through. He
+breathed deep again, tucked his gun close, and reached for the lip of the door. He felt the cold riveted metal and
+grasped it. He felt how heavy it was, just by the width of it. Del paused, knowing he'd need two hands to do this
+smoothly. Tucking his gun back into his belt, he grasped with both hands. He waited, expecting some sort of noise or
+movement from the other side. Wait. Wait. Nothing. He let out the breath he had been holding. In one smooth motion Del
+stepped back and around, straight arming the door open enough to squeeze through, and return it to back to its original
+angle with him now on the inside. It wasn't textbook, but he didn't know how badly it would go for him until later.
 
 Del stepped to his immediate left and hugged the wall all the way to the corner of the room. He did his best to blend in
 with the shadows and shrink his profile. Once he made it to the corner he stopped and crouched low on his toes. He was
@@ -359,8 +361,53 @@ victims of some fucked up priest, or figurehead. Del felt his blood begin to boi
 the orchestrator of this terrible crime if he ever got the chance to wright this wrong. His mind flashed back to some
 unfortunate soldiers him and his brothers had cornered in a past life. He would make them pay.
 
-Del used all the skills at his disposal to get right up to the stock still cattle. He made it to the first person at the
-edge, and did his best to examine the helmet they were unfashionably sporting. It was a gaunt man, older, but still
-healthy enough to walk by his judge. Del reached for the lid with both hands, intent on examining how securely it was
-mounted. By his measure, anyone at the edges would have been subjected to the least amount of torture and would be the
-most helpful. His hands inched closer and then he felt it.
+Del used all the skills at his disposal to get right up to the stock still human cattle. He made it to the first person
+at the edge, and did his best to examine the helmet they were unfashionably sporting. It was a gaunt man, older, but
+still healthy enough to walk by his judge. Del reached for the lid with both hands, intent on examining how securely it
+was mounted. He wanted to help this poor victim. By his measure, anyone at the edges would have been subjected to the
+least amount of torture and would be the most helpful, so thats where he made it bet. He brushed his fingers across the
+rim of the helmet, and then he heard screams.
+
+All around him screams erupted from them. Horrible tortured screams that shouldn't have been possible. Terrible noises
+that would stay with him for the rest of his life. The cadaverous livestock erupted in a chorus that made his ears ring,
+and caused him to involuntarily leap back. He felt a solid thud as he collided with something stiff and bony, but solid
+and unmoving. A split second later he felt cold steely hands grip him across his arms. He let out a yelp as he struggled
+to the best of his abilities, but it was too late. However it had happened, these people had gotten the drop on him, and
+now one of them had both his arms pinned from behind. He tried to throw head head back, in a vain attempt to bash his
+attackers face, but all he did was crack it loudly into something harder than his skull. Seeing stars, he felt them kick
+his knees and force him into a kneeling position. His head was stinging, and the grip on his arms was steel clad. He
+looked down to examine if he'd been cuffed, and to his surprise he was still being held.
+
+The grip was a human, but a paradoxically frail looking one. He saw boney fingers, and loose skin on the hands, and the
+sleeves were large, of a red hue, and looked like they belonged to a robe. He craned his neck and tried to get a look at
+whomever was holding him. He turned and the shock took his breath away. It was the most angular face he'd ever seen. It
+was a man's face, but Del felt like it was only a mask. The skin was loose, and was more draped onto the skull than
+attached to it. The nose and cheeks were long and slanted, almost at cartoonish angles, but in no way funny. It was the
+eyes that frightened del the most. They were twin pinpricks of reflected light, reminiscent of a cats, but at human
+proportions. The man was wearing a hood, which Del imagined would have covered his frightening visage, but at this
+angle, down up, Del could see everything. Del felt the man wrench his arm and he was forced to face the front.
+
+The screaming died down and he heard a voice from the other side of the crowd.
+
+"Well well well, you must be our offering." came a man's voice. "It seems we'll have to have a chat with your friend,
+since I don't think your the right one. But that's fine, were always looking for new recruits, and here you've already
+done all the hard work of getting down here."
+
+Del strained to try and see who was talking. At the edges of his vision, he saw a well dressed man striding towards him.
+He was wearing an expensive looking suit and was clearly in charge of this social war crime.
+
+"I'm here to chat." Del said, struggling to fabricate some story to save his worthless skin. "I'm not they guy you want,
+but I can help you find him."
+
+"Oh I'm sure you can, but why would we bargain with you, when we can just become you?" the man said in a tone that made
+Del think he had heard all this before from a dozen different mouths. "You see this?" The man motioned to the crowd in
+front of them. "This is it. This is how we'll win. With this we can conquer everything, and anyone. Bend them to our
+will, or break them into pieces. Time might be running out, but we'll find who were looking for. Soon."
+
+"Why are you looking for him? What do you even want?" Del asked, desperately stalling.
+
+Del felt whoever was holding him lean close, followed by a searing pain in hs neck. He gritted his teeth to stop himself
+from screaming. Whatever was holding him had just taken a bite out of his neck. He felt a warm trickle of blood run down
+from the wound.
+
+"You're not our guest of honor, so we don't really need to explain ourself to you. Jacob, add him to the installation."
