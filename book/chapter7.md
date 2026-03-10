@@ -410,4 +410,45 @@ Del felt whoever was holding him lean close, followed by a searing pain in hs ne
 from screaming. Whatever was holding him had just taken a bite out of his neck. He felt a warm trickle of blood run down
 from the wound.
 
-"You're not our guest of honor, so we don't really need to explain ourself to you. Jacob, add him to the installation."
+"You're not Alphason's envoy, we don't owe you anything. Acolyte Jacob, add him to the installation."
+
+"Alphason? I know him! I know him!" Del yelled, delirious from the bite or maybe from hearing that name. Someone who he
+had long thought dead was sending someone to meet this church? How? Why? His mind was racing trying to rationalize what
+he'd heard. The suited man stopped, and turned. Behind him, he heard some clicking from the red robed skeleton. The
+noise was eery, but not nearly as eery as what was about to follow. In unison the crowd moaned and swayed. A cacophony
+of voices melded together in an impossible symphony.
+
+"He-". "-Speaks-". -The-". "-Truth." The words came from individual voices, but with a haunting ~~noise~~.
+
+Del was at a loss for words. He could not fathom how his former commander had survived, let alone scheduled an envoy
+with this cult. _But wait, is it Hector?_ He stumbled over the thoughts rushing through his head and struggled to form a
+cohesive sentence.
+
+"What's going on here? Who are you? How do you know Alphason? What is he doing here?" The questions spilled out of his
+mouth like a flood. He was unable to pull his thoughts together, and it was he could do to focus on the crowd and their
+cacophonous speech.
+
+"We are Dreamweaver. We are the end. You will submit to us, join us. Together we will become strong and defeat the grand
+enemy."
+
+Del heard the voices come from all around, even the acolyte holding him was speaking in turn. He felt himself being half
+pushed, half dragged towards the skeletal choir. He watched in horror as the suited man pulled a bucketed helmet off on
+of the recruits. His mouth was agape as the recruit didn't fall over, or react except to move aside and wait. He heard
+more clicking, and more shuffling as the crowd jostled and swayed like grass in the wind. They were all linked, unified
+in some grand purpose that could only ~~evoke~~ the greatest sense of horror in Del. He had never felt so hopeless, so
+powerless, so dead. This would not even be death. This would be un life. He would die without a single hope and be
+condemned to a cursed existence. Del fought. He struggled with all his might as the suit slowly lowered the bucket onto
+his head. He felt hands grasp his head and hold him steady. They were warm, bony, and solid as iron. He kicked his legs,
+and pulled his arms, but it hopeless. In one smooth motion, the suit slid the helmet down his head too fast for him to
+react. The last thing he saw was lights casting strange patterns, and before he could shut his eyes, he felt himself
+~~shutdown~~.
+
+His ears rang like nothing he had ever experienced. He turned his head away and looked down at his feet. He was
+standing, hands at his sides. His head hurt, his neck hurt. But otherwise he was fine. He could not hear anything
+besides the ringing in his ears. It hurt more than anything he had experienced. He brought his hands up to his pounding
+head and rubbed them. He could hear something. Yelling. No screaming. Then louder booms, one after another in rhythmic
+succession. He followed the source of the faint noises, wondering what could possibly be causing them. His foggy brain
+managed to piece together the image of a woman, holding a shotgun at her waist, firing angrily into a crowd of people.
+She was screaming something, and he thought she might have been looking at him. Next to her was some cloaked figure. He
+was wearing tarp in a cloaked fashion, but the hood was down and Del could see his incredibly grey face. He had a pipe
+in his hand, and he was also looking at Del. Del felt like he should be worried.
