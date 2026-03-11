@@ -446,9 +446,44 @@ react. The last thing he saw was lights casting strange patterns, and before he 
 His ears rang like nothing he had ever experienced. He turned his head away and looked down at his feet. He was
 standing, hands at his sides. His head hurt, his neck hurt. But otherwise he was fine. He could not hear anything
 besides the ringing in his ears. It hurt more than anything he had experienced. He brought his hands up to his pounding
-head and rubbed them. He could hear something. Yelling. No screaming. Then louder booms, one after another in rhythmic
+head and rubbed them. He could hear something. Yelling. No, screaming. Then louder booms, one after another in rhythmic
 succession. He followed the source of the faint noises, wondering what could possibly be causing them. His foggy brain
 managed to piece together the image of a woman, holding a shotgun at her waist, firing angrily into a crowd of people.
 She was screaming something, and he thought she might have been looking at him. Next to her was some cloaked figure. He
 was wearing tarp in a cloaked fashion, but the hood was down and Del could see his incredibly grey face. He had a pipe
-in his hand, and he was also looking at Del. Del felt like he should be worried.
+in his hand, and he was also looking at Del. They seemed to be moving in slow motion, and were beckoning him in almost
+exaggeratedly slow movements. He turned back to face whatever they were shouting at and it all snapped together in a
+millisecond.
+
+A dedicated face lunged into his view, it's lips curled back to expose yellowed teeth. It was going to take a bite out
+of his face. It was inches from his face when it's face exploded into a pulpy mass, and the body toppled backwards. Del
+was astonished, unsure what had just happened. He felt a reassuring weight in his right hand and realized that he'd
+drawn and fired his gun. Tha was right. He had a gun. He was here to do something. To kill these things? No. He was here
+to get information. He was tracking someone. Alphason.
+
+It was a pin dropped. All at once he saw the crowd stagger towards him, and towards Andrea an Hector. Time returned with
+a vengeance and suddenly he was grabbed by two more dehydrated cult members. Their grip was tearing into his skin, each
+had one of his arms, and they were slowly pinning them to his sides. He managed to turn his wrist and point it into the
+gut of the right one. He pulled the trigger and felt the recoil push his arm up into the grip. The cultist took the
+bullet in stride and kept squeezing him. He fired again. Again they shrugged it off. He fired a third time, right into
+their gut, and felt their grip weaken. He shook his arm free, and raised the gun to it's temple.
+
+**Bang**
+
+The body twitched, and fell backwards. Del quickly snapped the gun to the temple of the next one and fired again.
+
+**Bang**
+
+A satisfactory crumple followed. Del heard the shots. He could hear again, despite the ringing. He turned his head, and
+say Andrea was still screaming and firing into a throng of bodies shuffling towards her. Hector caught his eye, and
+tossed the pipe he had been holding in a wide arc towards Dell. Del watched it flip end over end in a perfect arc. It
+turned and caught the dim light just right for Del to judge the catch. In an almost effortless movement Del caught the
+pipe in his offhand. He turned back to the hoard, and suddenly he remembered his feet.
+
+Everything after that was a blur of yelling, and swinging. Del did his best to alternate between his gun and the pipe.
+Banging out an opening, and then finishing them off with the opening. He ran out of ammo in what could only have been
+seconds, and from there on is was a melee of epic proportions. Del was a blur of swings, fists, kicks, and screaming. He
+could not tell if he had been the one screaming, or if had been Andrea the whole time, but he was quote hoarse
+afterwards. Early on the cult members had gotten into a semi circle around him, forcing him to deal with them instead of
+breaking free clean. He eventually got his chance, after fending them off for what felt like an eternity, and he made a
+mad dash for the door.
