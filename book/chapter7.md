@@ -440,33 +440,33 @@ powerless, so dead. This would not even be death. This would be un life. He woul
 condemned to a cursed existence. Del fought. He struggled with all his might as the suit slowly lowered the bucket onto
 his head. He felt hands grasp his head and hold him steady. They were warm, bony, and solid as iron. He kicked his legs,
 and pulled his arms, but it hopeless. In one smooth motion, the suit slid the helmet down his head too fast for him to
-react. The last thing he saw was lights casting strange patterns, and before he could shut his eyes, he felt himself
-~~shutdown~~.
+react. The last thing he saw was lights casting strange patterns, and before he could shut his eyes, everything went
+black.
 
-His ears rang like nothing he had ever experienced. He turned his head away and looked down at his feet. He was
-standing, hands at his sides. His head hurt, his neck hurt. But otherwise he was fine. He could not hear anything
-besides the ringing in his ears. It hurt more than anything he had experienced. He brought his hands up to his pounding
-head and rubbed them. He could hear something. Yelling. No, screaming. Then louder booms, one after another in rhythmic
-succession. He followed the source of the faint noises, wondering what could possibly be causing them. His foggy brain
-managed to piece together the image of a woman, holding a shotgun at her waist, firing angrily into a crowd of people.
-She was screaming something, and he thought she might have been looking at him. Next to her was some cloaked figure. He
-was wearing tarp in a cloaked fashion, but the hood was down and Del could see his incredibly grey face. He had a pipe
-in his hand, and he was also looking at Del. They seemed to be moving in slow motion, and were beckoning him in almost
-exaggeratedly slow movements. He turned back to face whatever they were shouting at and it all snapped together in a
-millisecond.
+His ears rang. It was the worst he'd ever experienced. He felt oddly calm, despite the excruciating pain in his head,
+and the deafening ringing. Otherwise he was fine. He tried rubbing his ears to make it go away but all it did was result
+in the predictable rubbing noises. Wait. He could hear something. Yelling. No, screaming. Then louder booms, one after
+another in rhythmic succession. It was like being in a bubble, they were so faint. Tilted his head slightly, trying to
+isolate a direction. It was from behind him. He turned his head, and his addled brain managed to piece together a
+frantic scene. There was a woman, holding a shotgun at her waist, firing angrily into a crowd of people. She was
+screaming something, and he thought she might have been looking at him. Next to her was some dirty figure with a tarp
+slung across him like a cloak. The hood was down and Del could see his incredibly grey face. He had a pipe in his hand,
+and he was also looking at Del. They both seemed to be moving in slow motion, and were beckoning him in exaggeratedly
+slow movements. He turned back to face forwards, conscious that they were clearly fighting something.
 
-A dedicated face lunged into his view, it's lips curled back to expose yellowed teeth. It was going to take a bite out
-of his face. It was inches from his face when it's face exploded into a pulpy mass, and the body toppled backwards. Del
-was astonished, unsure what had just happened. He felt a reassuring weight in his right hand and realized that he'd
-drawn and fired his gun. Tha was right. He had a gun. He was here to do something. To kill these things? No. He was here
-to get information. He was tracking someone. Alphason.
+A desiccated face lunged into his view, it's lips curled back to expose yellowed teeth. The face was going to take a
+bite out of his face. It was inches from him when it exploded into a pulpy mass, and feel backwards. Del was astonished,
+unsure what had just happened. He felt a reassuring weight in his right hand and realized that he'd drawn and fired his
+gun. Tha was right. He had a gun. He was here to do something. To kill these things? No. He was here to get information.
+He was tracking someone. Lili. Alphason.
 
-It was a pin dropped. All at once he saw the crowd stagger towards him, and towards Andrea an Hector. Time returned with
-a vengeance and suddenly he was grabbed by two more dehydrated cult members. Their grip was tearing into his skin, each
-had one of his arms, and they were slowly pinning them to his sides. He managed to turn his wrist and point it into the
-gut of the right one. He pulled the trigger and felt the recoil push his arm up into the grip. The cultist took the
-bullet in stride and kept squeezing him. He fired again. Again they shrugged it off. He fired a third time, right into
-their gut, and felt their grip weaken. He shook his arm free, and raised the gun to it's temple.
+It was like a pin dropped. His bubble burst, and all at once he saw the crowd stagger towards him, and towards Andrea
+and Hector. Time returned with a in a tidal wave and suddenly he was grabbed by two more dehydrated cult members. Their
+grip was tearing into his skin, each had one of his arms, and they were slowly pinning them to his sides. He managed to
+turn his wrist and point his gun into the gut of the right one. He pulled the trigger and felt the recoil push his arm
+up into the grip. The cultist took the bullet in stride and kept squeezing him. He fired again. Again they shrugged it
+off. He fired a third time, ~~tilting~~ his wrist to the extreme to get a higher angle. This time it had the desired
+effect and he felt the first one's grip weaken. He dragged his arm free, and raised the gun to it's temple.
 
 **Bang**
 
@@ -474,16 +474,49 @@ The body twitched, and fell backwards. Del quickly snapped the gun to the temple
 
 **Bang**
 
-A satisfactory crumple followed. Del heard the shots. He could hear again, despite the ringing. He turned his head, and
-say Andrea was still screaming and firing into a throng of bodies shuffling towards her. Hector caught his eye, and
-tossed the pipe he had been holding in a wide arc towards Dell. Del watched it flip end over end in a perfect arc. It
-turned and caught the dim light just right for Del to judge the catch. In an almost effortless movement Del caught the
-pipe in his offhand. He turned back to the hoard, and suddenly he remembered his feet.
+A satisfactory crumple followed. Del heard the shots. He could Andrea's shotgun booming off behind him. He turned his
+head, and saw Andrea was still screaming and firing into a throng of bodies shuffling towards her. Hector caught his
+eye, and tossed the pipe he had been holding in a wide arc towards Dell. Del watched it flip end over end in a perfect
+arc. It turned and caught the dim light just right for Del to judge the catch it. In an effortless movement Del flicked
+his hand out and caught the pipe in his offhand. He turned back to the hoard, and he remembered his feet.
 
-Everything after that was a blur of yelling, and swinging. Del did his best to alternate between his gun and the pipe.
-Banging out an opening, and then finishing them off with the opening. He ran out of ammo in what could only have been
-seconds, and from there on is was a melee of epic proportions. Del was a blur of swings, fists, kicks, and screaming. He
-could not tell if he had been the one screaming, or if had been Andrea the whole time, but he was quote hoarse
-afterwards. Early on the cult members had gotten into a semi circle around him, forcing him to deal with them instead of
-breaking free clean. He eventually got his chance, after fending them off for what felt like an eternity, and he made a
-mad dash for the door.
+Everything after that was a blur of yelling, and swinging. The crowd, now hoard had surrounded him. All he could see was
+arms reaching for him and he fought back with gun and pipe. He was yelling kicking, and emptying the gun into every face
+he could see. One would go down, and another would take it's place. Del throw himself at the monsters, knowing full well
+that he was fighting for his life. All he could hear was the ringing, and all he could feel was the pumping of his
+heart. He had never fought so hard in all his life. Before he knew it his gun clicked empty, and he switched to whipping
+anything that got too close. Hands scrapped at his legs, his arms, and his head. He was going to loose eventually, but
+then he found an opening. Andrea and Hector had gotten back to the door, no longer ominous, but inviting. It was the
+most inviting door Del had ever known, and he found with every last ounce of his strength to get to it. Faces caved,
+arms broken, and knees ruptured.
+
+"Fucking move it!" Andrea screamed, waving him forwards.
+
+In a last ditch effort, Del dove through the opening, and Hector drove the door shut. Andrea grabbed the pipe from him,
+leaving him on his stomach in a heap of exhaustion. Del rolled over onto his back to see her wedge the pipe at an angle
+into the door, and he watched as Hector gave it a firm kick to wedge it even further.
+
+"Get the fuck up soldier boy, we gotta move." Andrea beckoned him.
+
+"I'm. Coming" was all Del could muster in response.
+
+Hector held out a hand, his face still a mask of emotionless grey. Del knew Hector had played them both, and that he had
+to answer for what had happened, but he wasn't above accepting help. And he certainly was not going to pick that fight
+right now.
+
+**Thud** **Bang**
+
+**Thud** **Bang**
+
+The door was taking a beating and Del had no faith that it would fail soon. He took a deep breath, and reached up for
+Hector's hand. He pulled him onto his feat and they turned to see Andrea had already taken off full tilt down the
+tunnel. Both of them took off behind her, doing their best to match her speed. Del did his best to avoid the pipes and
+cables, but he found he had to slow to keep from colliding, or tangling. He was already hurt enough, the scratches,
+nicks, and the gouge on his neck were all weighing him down. he heard the door crash, and he kept running, not daring to
+look behind. He felt his jacket pocket bump into him with a familiar weight, and he remembered the spare pistol mag.
+Without slowing he flipped his grip on the gun, ejected the clip with one hand, while simultaneously fishing out the
+spare with his other hand. He slapped the two pieces together with a satisfying click, and allowed himself a small
+degree of satisfaction at his feat. Elation fading, he redoubled his efforts into running and he pumped his legs, trying
+to keep pace with the others. He was doing his best, but he was flagging behind.
+
+Behind him, he could hear
