@@ -508,15 +508,62 @@ right now.
 
 **Thud** **Bang**
 
-The door was taking a beating and Del had no faith that it would fail soon. He took a deep breath, and reached up for
-Hector's hand. He pulled him onto his feat and they turned to see Andrea had already taken off full tilt down the
-tunnel. Both of them took off behind her, doing their best to match her speed. Del did his best to avoid the pipes and
-cables, but he found he had to slow to keep from colliding, or tangling. He was already hurt enough, the scratches,
-nicks, and the gouge on his neck were all weighing him down. he heard the door crash, and he kept running, not daring to
-look behind. He felt his jacket pocket bump into him with a familiar weight, and he remembered the spare pistol mag.
-Without slowing he flipped his grip on the gun, ejected the clip with one hand, while simultaneously fishing out the
-spare with his other hand. He slapped the two pieces together with a satisfying click, and allowed himself a small
-degree of satisfaction at his feat. Elation fading, he redoubled his efforts into running and he pumped his legs, trying
-to keep pace with the others. He was doing his best, but he was flagging behind.
+The door was taking a beating and Del had no wish to put his faith in it any more than he had to. He took a deep breath,
+and reached up for Hector's hand. Hector pulled him onto his feat and they turned to see Andrea had already taken off
+full tilt down the tunnel. Both of them took off behind her, doing their best to match her speed. Del did his best to
+avoid the pipes and cables, but he found he had to slow to keep from colliding into knee high protrusions, or tangling
+up in noose. He was already hurt enough, the scratches, nicks, and the gouge on his neck were all weighing him down. he
+heard the door crash, and he kept running, not daring to look behind. He felt his jacket pocket bump into him with a
+familiar weight, and he remembered the spare pistol mag. Without slowing he flipped his grip on the gun, ejected the
+clip with one hand, while simultaneously fishing out the spare with his other hand. He slapped the two pieces together
+with a satisfying click, and allowed himself a small degree of satisfaction at his feat. Elation fading, he redoubled
+his efforts into running and he pumped his legs, trying to keep pace with the others. He was doing his best, but he was
+flagging behind.
 
-Behind him, he could hear
+Behind him, he could hear bodies sprinting after them, their stiff movements a thing of the past now that they were
+moving with some momentum. He plunged headlong, picking out his crew at the tunnel entrance. They had waited for him,
+though he could not say why. He did not care to ponder it, and instead burst out from the tunnel and immediately turned
+for the stairs they had descended via.
+
+"We can't go that way!" Andrea yelled at him between breaths.
+
+"Which other fucking way do we go?" Del yelled back, exasperated and sucking down air as best as his lungs could manage.
+
+"This way." Hector took off, further into the complex, down the main hall.
+
+"How the fuck does he know which way to go?" Andrea asked.
+
+"He set 'us' up." Del said, forcing himself onwards.
+
+Andrea grunted, and quickly overtook him. He was really starting to lag behind, and he could feel himself fading. He did
+not feel like he had much left in the tank. Del chanced a look behind them, and saw that the church members had rounded
+the corner. He saw a score of them continue towards the maw they had descended to get here, but then something else
+rounded the corner, lagging behind slightly. In the dark Dell could only make out a hunched shape with impossibly angled
+features. It looked towards the maw, and them turned his way. Despite the pounding in his head from all the running, he
+still managed to hear it. The crack, crack, crack noise that emanated from it reminded him of bones snapping, but as
+soon as it finished, the cult members halted int heir tracks and pulled a full reversal towards them. Del felt his heart
+leap, and he suddenly wished that he had not looked at all. He coughed and tried to force oxygen into his burning lungs,
+as if through pure force of will he could power his legs into working faster. Up ahead he watched as Hector and Andrea
+turned a corner, and he followed, almost crashing into them.
+
+They had stopped at a lift door, and he saw that Hector had keyed the lift. Nobody had to say anything, they all knew
+this was it. Del tried to get his breathing under control, and he eyed up Andrea and Hector. Both of them were breathing
+hard, and doing their best to keep upright. Hector even looked a little more human than normal, like all this physical
+activity had broken his emotionless mask. Del switched back to Andrea, and he struggled to speak to her between gasping
+breaths.
+
+"Got. Anything. Besides. -Gun." was all he managed.
+
+She looked at him, hatred in her eyes. Maybe it was their constant fighting, or maybe it was her clear issue with
+people, but he briefly considered if she had just considered shooting him and leaving him for bait right then and there.
+
+"Shut the fuck up." She growled at him.
+
+He struggled to stand up straight, and he went to peak back around the corner. He watched as the church goers turned
+mindless mummified ~~shamblers~~ surged towards them. He figured they had about thirty seconds before they were on them.
+He raised his pistol, arm straight out, and did his best to aim down the hall. Right before he pulled the trigger, he
+remembered he had forgotten to chamber a round. Too tired to make a deal out of it, he lazily raised his arm around and
+chambered it, not even bothering to check anything. He pulled the trigger, once, twice, then just kept firing. He saw a
+couple go down, but the rest surged forwards, unharmed, or un bothered he could not tell.
+
+**Ding**
