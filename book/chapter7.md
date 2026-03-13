@@ -275,10 +275,10 @@ Del started down the tunnel.
 
 "Wait. Give me your contact info." She started phishing her phone out of her pocket.
 
-"There's no signal this deep." Del didn't even bother digging out him phone. "Here, two flashes means all clear, one
-means danger. Simple enough."
+"There's no signal this deep." Del didn't even bother digging out him phone. "Here," and he pointed to her light. "Two
+flashes means all clear, one means danger. Simple enough."
 
-Andrea paused. "Simple enough."
+"Simple enough." Andrea repeated.
 
 With that cleared up, he spun around and disappeared down the hall. Or maybe it was a tunnel at this depth. Either way,
 Del felt better breaking away. He'd always been on the edge of people, and groups. Groups of people. It was rare for him
@@ -333,6 +333,8 @@ smoothly. Tucking his gun back into his belt, he grasped with both hands. He wai
 movement from the other side. Wait. Wait. Nothing. He let out the breath he had been holding. In one smooth motion Del
 stepped back and around, straight arming the door open enough to squeeze through, and return it to back to its original
 angle with him now on the inside. It wasn't textbook, but he didn't know how badly it would go for him until later.
+
+// todo add more description to suggest the room is cramped
 
 Del stepped to his immediate left and hugged the wall all the way to the corner of the room. He did his best to blend in
 with the shadows and shrink his profile. Once he made it to the corner he stopped and crouched low on his toes. He was
@@ -560,10 +562,41 @@ people, but he briefly considered if she had just considered shooting him and le
 "Shut the fuck up." She growled at him.
 
 He struggled to stand up straight, and he went to peak back around the corner. He watched as the church goers turned
-mindless mummified ~~shamblers~~ surged towards them. He figured they had about thirty seconds before they were on them.
-He raised his pistol, arm straight out, and did his best to aim down the hall. Right before he pulled the trigger, he
-remembered he had forgotten to chamber a round. Too tired to make a deal out of it, he lazily raised his arm around and
+mindless mummified monsters surged towards them. He figured they had about thirty seconds before they were on them. He
+raised his pistol, arm straight out, and did his best to aim down the hall. Right before he pulled the trigger, he
+remembered he had forgotten to chamber a round. Too tired to even swear about it, he lazily raised his arm around and
 chambered it, not even bothering to check anything. He pulled the trigger, once, twice, then just kept firing. He saw a
 couple go down, but the rest surged forwards, unharmed, or un bothered he could not tell.
 
 **Ding**
+
+Del had never heard such a sweet sound in all his life. He turned his head and saw the heavy industrial lift doors sag
+open. Inside was the most inviting yellow light, becoming them inside. Del needed no second offer, and stumbled towards
+it, hector already inside, Andrea making a significant effort to move herself. She seemed Del thought about passing her
+and covering his own ass, but he thought better and stepped into her and did his best to hoist her up. She grunted in
+displeasure, but did not resist. Together they hobbled through the doors, and Hector slammed the button for the main
+floor. Andrea pushed off him, and collapsed on the floor. Del left her, and raised his gun towards the entry. They could
+bleed later, right now he was more concerned with keeping his sanity. Just as the doors started closing a face rounded
+the corner. Del was not sure how many shots he had left but he fired indiscriminately anyways. His first shot went wide,
+and he inwardly cursed himself. He brought his other hand up in support and took another shot, this time nailing it
+square in the forehead. It's neck snapped back and it toppled backwards, bumping into another that had rounded the
+corner, slowing it down in turn. The doors inched closed so slowly that Del thought they must have been aware of their
+rush and determined to keep them inside this cultist vault. Del fired again, clipping one in the check, and then again
+catching another in the chest. They just kept coming, and Del thought they would reach the door, when a deafening boom
+tor the first one apart and knocked it back into the other. Del saw scratches on the inside of the door from the shot,
+and he thought he heard Andrea chamber another round. The doors inched closer and closer, and before they closed Del say
+it again. He could only see it's head, above the rest, but that was enough. It was inhuman, and in the dim light all Del
+could see was bone. He locked eyes with it, past the sunken sockets that looked straight back at him, past the ridges of
+pale bone where skin should have been, and he felt the cold unfading hunger that consumed it. The empty sockets watched
+at the doors closed, and Del felt cold.
+
+He was spent, unable to move. He stood there, just breathing and trying to stay upright. He whole body ached with each
+breath, and he was distinctly aware of a slow trickle down his neck. Hector shuffled behind him, and without turning he
+heard a rustle of tarp and a few grunts followed by a soft exhale. Before he knew it, Hector had slipped under his arm,
+and was supporting him and Andrea. Together they must have looked like some malformed monster of their own. Two black
+clad figures, with a tarp in between. They must have been quite the sight to behold. The lift dinged, and Del's heart
+skipped a beat, half expecting a greeting party to engulf them. He was thankfully mistaken and together they shambled
+out. Del was too exhausted to think of anything beyond putting one foot in front of the other, but he mentally filled
+away a need to chat with Hector and find out what he knew that they did not. It was clear him and Andrea had been
+played, and not Hector like she had planned. Alphason. How did he fit into this? So many problems, but Del just pushed
+it down, and they stumbled away into the early morning.
