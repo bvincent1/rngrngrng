@@ -27,3 +27,9 @@ counts.txt: $(BOOK_FILES) ## Update the [counts.txt] file from all the [./book/*
 	@cat ${COUNT_FILE}
 
 counts: counts.txt ## alias for [counts.txt]
+
+save: counts format ## update count, format, add, commit, and push all book changes
+	@git add book counts.txt
+	@git commit --verbose
+	@git push
+.PHONY: save
