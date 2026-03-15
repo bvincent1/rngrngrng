@@ -3,7 +3,7 @@ title: Dreamweaver
 description: The team meets their first god
 ---
 
-> UNII Corps log date 2327-09-30-0545 20m later
+> UNII Corps log date 2327-09-30-0545 1s later
 
 "Pull up at the corner there" Del said to the driver.
 

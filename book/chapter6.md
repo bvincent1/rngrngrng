@@ -80,7 +80,28 @@ More arguing followed and Hector felt himself walk towards one of the monitors. 
 shadow. A gap in the storm that should not be there. He could almost pick it out, see a shape, when it snapped shut and
 the torrent resumed.
 
-"I'll book it, quit your bitching." The small woman said, walking back towards the desk hector was standing in front of.
+"I'll book it, quit your bitching." The Rikki Mega said, walking back towards the desk hector was standing in front of.
 "Excuse me please." she said, and Hector stepped out of her way. He saw she was scared and worried, but he could also
-see she confused by what she was saying, as if she was not in control of herself like he was. He ignored it, confident
-he was alone. He would know if she was gifted like he was.
+see she confused by what she was saying, something was bothering her. He ignored it, and put all his effort info
+focusing on the current path.
+
+He watched as Andrea Ryan punched a hole in the wall, narrowly missing Del. Del returned by drawing his holstered pistol
+and shoving it into her chest. The two paused a fraction of a second, before Del pulled the trigger and a hollow thump
+echoed through the room.
+
+_No, we gotta focus._ Hector willed his mind to the present, and all was as he left it. They were all stepping into a
+car and he was still on the way towards their destination. Hector did not use to believe in a god, but now he prayed
+that these two would forgive him afterwards. Forgive him for what they would face, and for what he would put them
+through. Hector felt himself drift through time, carried like a feather on the breeze by his prayers. He was at peace,
+forfeiting his willpower to something bigger than himself. He tried to stay like that, suspended in time and space, but
+eventually he felt an unease that made him open his eyes. The storm had subsided, and he felt a great absence wash over
+him. A chill crept down his spine as he felt a deep presence nearby, and at once he knew that the prayer had brought it
+close. It was the same as at the blok, but this time his connection was closer to it. He could eak an intension from the
+entity. Within that emptiness, under the shadow from the storm, Hector could feel it. Hunger. A great and unending
+hunger. Entropy embodied. The descent into oblivion. He could barely hold on to his mind, and he felt the power pulsing
+through him like a conduit. Hector screamed, and tensed, tried to break free. And did.
+
+His mind reconnected to his body. He was in the back seat of a car, calmly sitting next to his crew. They did not react,
+or seem unnerved by him. He was alone in his suffering.
+
+"Pull up at the corner there" Arthur O'Delt said to the driver.
