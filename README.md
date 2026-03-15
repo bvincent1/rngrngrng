@@ -23,6 +23,7 @@ mean the difference between survival and total destruction.
 4. [best laid plans](./book/chapter4.md)
 5. [ragtag team](./book/chapter5.md)
 6. [push and pull](./book/chapter6.md)
+7. [Dreamweaver](./book/chapter7.md)
 
 ## Formatting
 
