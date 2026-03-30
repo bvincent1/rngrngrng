@@ -140,4 +140,24 @@ mentally double checking what this man had just said.
 and more of the artifacts are coming back online. We've been so busy trying to categorize it all, that I hadn't gotten
 around to telling you. Every day more technology comes back online, and we're just barely able to manage."
 
-Kane did his level best to regain his composure. This man had dropped a bomb on his desk, not once but twice.
+Kane did his level best to regain his composure. This man had dropped a bomb on his desk, not once but twice. He noticed
+the call light on his desk was blinking steadily. Without even asking, he pressed it.
+
+"Knopp is outside your office, he says it's an emergency." Tailings voice came through, with that electric sheen that
+speakers and microphones just could not seem to overcome.
+
+_Somehow I don't think it is, but what the hell._
+
+"Let him in please Tailings." Kane said, watching Dr Ziatovsicsh grow slightly paler. The door glided open soundlessly,
+and Taylor Knopp strode through. The man was Kane's head of security, and he looked every inch of that job. Square
+jawed, grey hair, and square shoulders. Indeed he looked like a block, save for the pink scar across his cheek. Kane
+thought he kept it there to ~~verify~~ any stereotypes strangers might make of him. Kane had never bothered to look up
+how he had gotten it himself. He could not be bothered to care. But here he was, briskly crossing the expanse between
+his office door and desk, at a record setting pace. The doctor grew paler with each closing step, if that were even
+possible given his already pallid complexion.
+
+"Sorry to interrupt sir, but we've got a hit on Alphason." And Knopp slid a tablet across to Kane. "Partial facial
+match, but we think it's worth tracking down."
+
+Kane stared at the grainy image displayed. The face could be anyone for all he could see, and the color was all off. "Am
+I to understand that you knew about the breach too then?" He said calmly.
