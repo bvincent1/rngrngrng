@@ -143,21 +143,65 @@ around to telling you. Every day more technology comes back online, and we're ju
 Kane did his level best to regain his composure. This man had dropped a bomb on his desk, not once but twice. He noticed
 the call light on his desk was blinking steadily. Without even asking, he pressed it.
 
-"Knopp is outside your office, he says it's an emergency." Tailings voice came through, with that electric sheen that
+"Knopp is outside your office, he says it's an emergency." Tailings voice came through, with that electric crackle that
 speakers and microphones just could not seem to overcome.
 
-_Somehow I don't think it is, but what the hell._
+_I absolutely fucking doubt it._
 
-"Let him in please Tailings." Kane said, watching Dr Ziatovsicsh grow slightly paler. The door glided open soundlessly,
-and Taylor Knopp strode through. The man was Kane's head of security, and he looked every inch of that job. Square
-jawed, grey hair, and square shoulders. Indeed he looked like a block, save for the pink scar across his cheek. Kane
-thought he kept it there to ~~verify~~ any stereotypes strangers might make of him. Kane had never bothered to look up
-how he had gotten it himself. He could not be bothered to care. But here he was, briskly crossing the expanse between
-his office door and desk, at a record setting pace. The doctor grew paler with each closing step, if that were even
-possible given his already pallid complexion.
+"Let him in Tailings." Kane said, watching Dr Ziatovsicsh grow slightly paler. The door glided open soundlessly, and
+Taylor Knopp strode through. The man was Kane's head of security, and he looked it every inch. Square jawed, square
+shoulders, and square gait. The man never failed to remind him of a chiseled slab, but like the ones fresh of the line,
+rather than a curvy siren. The only blemish was a pink scar across his cheek, which contrasted harshly against his
+unusually dark skin. Knopp briskly crossed the gap at a record setting pace. _Must really be important._ The doctor grew
+paler with each closing step, if that were even possible.
 
-"Sorry to interrupt sir, but we've got a hit on Alphason." And Knopp slid a tablet across to Kane. "Partial facial
-match, but we think it's worth tracking down."
+"Sorry to interrupt sir, but we've a hit on'n VIP." And Knopp slid a tablet across to Kane. "Partial facial match, but
+we think it's worth tracking down."
 
-Kane stared at the grainy image displayed. The face could be anyone for all he could see, and the color was all off. "Am
-I to understand that you knew about the breach too then?" He said calmly.
+Kane was always surprised by Knopp's accent. It was a thick french, which Kane made him think of the foreign legion.
+Indeed one of the few things Kane new about Knopp was that he was actually part of the foreign legion, now a Unicorp
+offshoot. Unlike the royalty of old, the Carthatch family knew how to learn from others' mistakes. They'd long ago
+installed charity, and training camps well outside their core operations in order to indoctrinate impressionable youth.
+Far too many kings and queens had been slain by besmirched locals, who'd grow up under the thumb of their tyranny. No,
+the Carthatch clan had built a handpicked army, loyal to only them, and one who couldn't even comprehend the idea of
+mutiny. Why betray the corporation that'd only ever done right by you. Yes, Knopp was loyal, but Kane couldn't bring
+himself to outright trust him nonetheless.
+
+Kane stared at the grainy image displayed. The face could be anyone for all he could tell, and the color was all off.
+"Am I to understand that you knew about the breach too then?" He said calmly. Knopp blinked. The human slab kept a
+straight face.
+
+"Non sir." He responded, standing ramrod straight and looking directly at Kane. "Standard operations, we keep a running
+surveillance on all head service levels and above."
+
+The accent was getting thicker with each sentence. _Hell of a tell Knopp._ Kane was struggling to keep his gaze, it was
+like a staring contest with a boulder. "We have you to thank then, it seems the doctor here misplaced a science
+experiment, and you've gone and found him."
+
+"Sir, I, I think this is not the correct move." Ziatovsicsh cut in.
+
+"Well it seems you've been doing a lot of thinking lately, so how about letting our head of security take over. He's
+certainly more experienced in ELIMINATING threats. He'll deliver the body to you for study." Kane broke eye contact with
+Knopp, and lift his hand to wave them off.
+
+"No." Ziatovsicsh stood straighter, clearly doing his best to present a confidence that was surely laking. "We can't
+kill him. He's too important. We don't even know how he's doing it. I want to re-iterate what I said just now sir. The
+technology is turning on, powering up. All on it's own. We've even heard reports of new finds. I don't think you get
+it."
+
+"WHAT I DON"T GET IS HOW YOU COULD FUCK THIS UP SO BADLY!" Kane yelled. "You even have the gall to lie to me about it!"
+He finished, unable to stand the tone Ziatovsicsh had suddenly taken with him. _This fucker thinks I don't get it._ "No,
+you've had your chance, and now it's time to let those better qualified finish it. Knopp, take whatever you need, and
+deliver the remains to the doctor hear."
+
+"Yes'sir." Knopp's hand twitched, years of unconscious habit only held in check by force of will, even after all this
+time.
+
+Knopp turned on a dime, and started for the door. Kane saw Dr Ziatovsicsh watch for a second before starting after him.
+
+"Sir, the power plant is starting to power back up!"
+
+That sent shivers down his spine.
+
+"Wait." Kane said, not quite believing what he had just heard. Knopp stopped dead in his tracks. He turned to face Kane
+and the doctor. Kane was certain Knopp had no idea what the doctor was talking about, but he certainly did.
