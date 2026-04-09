@@ -1,6 +1,6 @@
 ---
 title: misalignment of priorities
-description: We meet Kane and learn about the project
+description: We meet Kane and learn about the power project and the relics
 ---
 
 > UNII Corps log date 2327-09-30-1004 2h later
@@ -128,20 +128,20 @@ notes. "You work for me doctor. You answer to me. When something happens you rep
 I give you a task you had better do it. You're dismissed. I'm getting Knopp to clean this up."
 
 "No wait, that's not the important part. It's what I'm trying to tell you." Ziatovsicsh gasped. "It's what happened
-after he escaped that I'm trying to get to. Ever since Alphason woke back up, all the systems at the pitt have become
+after he escaped that I'm trying to get to. Ever since Alphason woke back up, all the relics at the pitt have become
 re-activated. They're functional again."
 
 Kane paused, hand hovering over his call button.
 
-"Didn't he just destroy your little playground? Isn't that what I just read in the notes?" Kane clarified, while
-mentally double checking what this man had just said.
+"Didn't he just destroy your little playground? Isn't that what I just read in the notes?" Kane clarified, barely
+interested in the face-saving the doctor was failing to ~~obtain~~.
 
 "No that was a different site. Compartimentalization. No, but since he woke up we've seen a rise in output at the pitt,
-and more of the artifacts are coming back online. We've been so busy trying to categorize it all, that I hadn't gotten
-around to telling you. Every day more technology comes back online, and we're just barely able to manage."
+and more of the relics are coming back online. We've been so busy trying to categorize it all, that I hadn't gotten
+around to telling you. Every day more come back online, and we're just barely able to manage it all."
 
-Kane did his level best to regain his composure. This man had dropped a bomb on his desk, not once but twice. He noticed
-the call light on his desk was blinking steadily. Without even asking, he pressed it.
+Kane did his level best to retain his composure. This man was under the impression that what he was explaining was more
+important than the disposal of Alphason. He noticed the call light on his desk was blinking steadily. He pressed it.
 
 "Knopp is outside your office, he says it's an emergency." Tailings voice came through, with that electric crackle that
 speakers and microphones just could not seem to overcome.
@@ -149,59 +149,130 @@ speakers and microphones just could not seem to overcome.
 _I absolutely fucking doubt it._
 
 "Let him in Tailings." Kane said, watching Dr Ziatovsicsh grow slightly paler. The door glided open soundlessly, and
-Taylor Knopp strode through. The man was Kane's head of security, and he looked it every inch. Square jawed, square
-shoulders, and square gait. The man never failed to remind him of a chiseled slab, but like the ones fresh of the line,
-rather than a curvy siren. The only blemish was a pink scar across his cheek, which contrasted harshly against his
-unusually dark skin. Knopp briskly crossed the gap at a record setting pace. _Must really be important._ The doctor grew
-paler with each closing step, if that were even possible.
+Taylor Knopp strode through. The man was Kane's head of security, and he looked it every inch. Tall, square jawed,
+square shoulders, and square gait. The man never failed to remind him of a six foot chiseled slab, but like the ones
+fresh of the line, rather than a delicately carved masterpiece. The only blemish was a pink scar across his cheek, which
+contrasted harshly against his unusually dark skin. Knopp briskly crossed the gap at a record setting pace. _Must really
+be important._ The doctor grew paler with each closing step, if that were even possible.
 
 "Sorry to interrupt sir, but we've a hit on'n VIP." And Knopp slid a tablet across to Kane. "Partial facial match, but
 we think it's worth tracking down."
 
 Kane was always surprised by Knopp's accent. It was a thick french, which Kane made him think of the foreign legion.
-Indeed one of the few things Kane new about Knopp was that he was actually part of the foreign legion, now a Unicorp
-offshoot. Unlike the royalty of old, the Carthatch family knew how to learn from others' mistakes. They'd long ago
-installed charity, and training camps well outside their core operations in order to indoctrinate impressionable youth.
-Far too many kings and queens had been slain by besmirched locals, who'd grow up under the thumb of their tyranny. No,
-the Carthatch clan had built a handpicked army, loyal to only them, and one who couldn't even comprehend the idea of
-mutiny. Why betray the corporation that'd only ever done right by you. Yes, Knopp was loyal, but Kane couldn't bring
-himself to outright trust him nonetheless.
+Indeed one of the few things Kane new about Knopp was that he was actually part of the foreign legion, but the Unicorp
+offshoot. Unlike the royalty of old, the Carthatch clan knew how to learn from the mistakes of others. They had long ago
+installed charity organizations, and training camps outside their core operating jurisdictions in order to funnel and
+indoctrinate impressionable youth. Far too many kings and queens had been slain by besmirched local security, people who
+had grow up under the thumb of their respective charges. No. The Carthatch clan had built a handpicked army, loyal to
+only them, and one who could not even justify the idea of mutiny. Why betray the corporation that had only ever done
+right by you.
 
 Kane stared at the grainy image displayed. The face could be anyone for all he could tell, and the color was all off.
-"Am I to understand that you knew about the breach too then?" He said calmly. Knopp blinked. The human slab kept a
+"Am I to understand that you knew about the breach too then?" He said calmly. Knopp blinked. The stone slab kept a
 straight face.
 
 "Non sir." He responded, standing ramrod straight and looking directly at Kane. "Standard operations, we keep a running
-surveillance on all head service levels and above."
+surveillance on all h-service levels et above."
 
-The accent was getting thicker with each sentence. _Hell of a tell Knopp._ Kane was struggling to keep his gaze, it was
-like a staring contest with a boulder. "We have you to thank then, it seems the doctor here misplaced a science
-experiment, and you've gone and found him."
+The accent was getting thicker with each sentence. _Hell of a poker face, but you're sloppy on the accent Knopp._ Kane
+was struggling to hold his gaze, like a staring contest with a boulder. "We have you to thank then. It seems the doctor
+here misplaced a science experiment, and you've gone and located it."
 
 "Sir, I, I think this is not the correct move." Ziatovsicsh cut in.
 
 "Well it seems you've been doing a lot of thinking lately, so how about letting our head of security take over. He's
-certainly more experienced in ELIMINATING threats. He'll deliver the body to you for study." Kane broke eye contact with
-Knopp, and lift his hand to wave them off.
+certainly more experienced in ELIMINATING threats." Kane spoke harshly. "Knopp'll deliver the body to you for study."
+Kane broke eye contact with Knopp, and lifted his hand to wave them off.
 
-"No." Ziatovsicsh stood straighter, clearly doing his best to present a confidence that was surely laking. "We can't
-kill him. He's too important. We don't even know how he's doing it. I want to re-iterate what I said just now sir. The
-technology is turning on, powering up. All on it's own. We've even heard reports of new finds. I don't think you get
-it."
+"No." Ziatovsicsh stood straighter, clearly doing his best to present a strong front that only succeeded in
+demonstrating a hollow face. "We can't kill him. He's too important. We don't even know how he's doing it. I want to
+re-iterate what I said just now sir. The relics are re-activating, powering up. All on their own. We've even heard
+reports of new finds spontaneously powering on. I don't think you get it."
 
-"WHAT I DON"T GET IS HOW YOU COULD FUCK THIS UP SO BADLY!" Kane yelled. "You even have the gall to lie to me about it!"
-He finished, unable to stand the tone Ziatovsicsh had suddenly taken with him. _This fucker thinks I don't get it._ "No,
-you've had your chance, and now it's time to let those better qualified finish it. Knopp, take whatever you need, and
-deliver the remains to the doctor hear."
+"WHAT I DON"T GET IS HOW YOU COULD FUCK THIS UP SO BADLY!" Kane yelled, finally loosing his patience with the man. "You
+even have the gal to lie to me about it!" He finished, unable to stand the tone Ziatovsicsh had taken with him. _This
+fucker thinks I don't get it._ "No, you've had your chance, and now it's time to let your betters finish it. Knopp, take
+whatever you need, and deliver the remains to the doctor."
 
-"Yes'sir." Knopp's hand twitched, years of unconscious habit only held in check by force of will, even after all this
-time.
+"Yes-sir." Knopp replied.
 
-Knopp turned on a dime, and started for the door. Kane saw Dr Ziatovsicsh watch for a second before starting after him.
+Knopp's hand twitched from years of unconscious habit, clearly meaning to salute, but refusing to out of conformity.
+Alphason had been similar, but he had dropped the habit much quicker that Knopp. Knopp turned on a dime, and started for
+the door. Kane saw Dr Ziatovsicsh watch for a second before starting after him.
 
-"Sir, the power plant is starting to power back up!"
+"Sir, the power plant is starting to power back up!" Dr Ziatovsicsh part yelled, part cried.
 
-That sent shivers down his spine.
+That sent shivers down Kane's spine.
 
 "Wait." Kane said, not quite believing what he had just heard. Knopp stopped dead in his tracks. He turned to face Kane
-and the doctor. Kane was certain Knopp had no idea what the doctor was talking about, but he certainly did.
+and the doctor. Kane was certain Knopp had no idea what Ziatovsicsh was talking about, but he certainly did. This was a
+big shock.
+
+"It's powering UP?" Kane asked, eyeing Ziatovsicsh with a glare that could have iced an acetylene torch.
+
+"Yes! That's what I said! The relics they're powering back up on their own. Clearly whatever Alphason is doing is
+affecting them. It's Affecting all of them." Dr Ziatovsicsh said, his words stumbling worse than Knopp's accent had.
+
+Kane's mind whirred with possibilities. This was very good news.
+
+"So you're telling me that somehow, Alphason has increased the power output? By how much?"
+
+"We're not sure. But it's significant, and it's increasing! It's not much right now, but judging by the estimates we're
+looking at thirty to fifty percent increases over the next few months." Ziatovsicsh explained, his tone now under
+control. "And that's month over month. Maybe triple by this time nex year."
+
+"Triple?" Kane asked, barely believing his ears.
+
+"Yes!" Dr Ziatovsicsh exclaimed, mirroring Kane's own excitement.
+
+"And Alphason is doing this?" Kane said, felling mixed about this.
+
+"Well, we think he might be. It's difficult to draw conclusions. But we need him returned to find out for sure."
+Ziatovsicsh motioned towards Knopp, who was still standing next to the door.
+
+Kane gestured him back, and he dutifully obliged. He waited until the man was looming over the desk.
+
+"How much is this do you understand?" He said, gesturing towards Knopp.
+
+Knopp took a deep breath, clearly about to test the limits of his intellectual depth.
+
+"VIP asset retrieval. Fine touch. Quick and quiet."
+
+Kane felt himself go through a myriad of emotions as he processed Knopps words, few as they have been. He admired the
+man's ability to distill a complex problem into a simple objective. He also painfully acknowledged that the work he was
+describing was Alphason's verbatim job description. _They at least had that in common._ He also realized, that Knopp
+probably realized, that this job would be orders of magnitude harder considering who they were attempting to extract and
+what sort of circumstances it would be under. Somehow this traitor had tricked the simpleton scientist and was now
+building a treasure trove of relics to sell to the highest bidder. Kane could see it now, he could perceive the path
+that Alphason had chosen. The simplicity of it all. Somehow he had put something together to out think the doctor, and
+now he was enacting it. Kane could not let this stand. He would crush this man, and make an example of him. Kane
+realized that he had been silent too long, and both Ziatovsicsh and Knopp were staring at him.
+
+"Yes." Kane responded. "You have full access, and use any resource necessary."
+
+He watched the doctor flinch from the implication.
+
+"Except lethal." Kane added. The doctor relaxed slightly.
+
+"Yes-sir." Knopp replied curtly, hand twitch ~~disregarded~~.
+
+"I will oversee this!" Ziatovsicsh spoke up.
+
+Both of the men glared at him, each for their own respective reasons.
+
+"It's imperative he be returned in a usable state!" The doctor insisted.
+
+"You will accompany the head of security, but he is in charge." Kane said, then directed his attention to Knopp. "It is
+imperative that we discover how Alphason is doing this, this power situation is the most important thing to cross our
+desks."
+
+Ziatovsicsh nodded his head knowingly.
+
+"Next time doctor, lead with that." Kane said dryly. "You're dismissed." Kane waved his hands, directing them to the
+doors.
+
+He watched as the two, who could not be more polar opposites made their way to the door. He vaguely wondered how that
+pair would work together. Once they left Kane allowed himself to relax, taking a deep breath.
+
+-- go on about how he's excited, and then somehow remind himself to fire the floor staff, and get Tailings onto how Dr
+Ziatovsicsh got into his office.
