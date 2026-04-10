@@ -21,8 +21,8 @@ learn about this diviner of architects, but his father had simply told him to ig
 _The little people will not matter._ Kane still thought on those words often. Nobody would matter when it was all said
 and done, but some would last longer than others.
 
-"Mr Carthatch I've prepped your office. You're to begin with Dr Ziatovsicsh first. After that you have a follow-up with
-Mr Kalospov concerning the acquisition of viatech." said the familiar voice of his assistant, Tailings. Kane didn't
+"mister Carthatch I've prepped your office. You're to begin with doctor Ziatovsicsh first. After that you have a follow-up with
+mister Kalospov concerning the acquisition of viatech." said the familiar voice of his assistant, Tailings. Kane didn't
 actually know his first name.
 
 "Hmmf." Kane grumbled, knowing full well that his first meeting was with the Doctor. Ziatovsicsh had been the one to
@@ -148,7 +148,7 @@ speakers and microphones just could not seem to overcome.
 
 _I absolutely fucking doubt it._
 
-"Let him in Tailings." Kane said, watching Dr Ziatovsicsh grow slightly paler. The door glided open soundlessly, and
+"Let him in Tailings." Kane said, watching doctor Ziatovsicsh grow slightly paler. The door glided open soundlessly, and
 Taylor Knopp strode through. The man was Kane's head of security, and he looked it every inch. Tall, square jawed,
 square shoulders, and square gait. The man never failed to remind him of a six foot chiseled slab, but like the ones
 fresh of the line, rather than a delicately carved masterpiece. The only blemish was a pink scar across his cheek, which
@@ -171,7 +171,7 @@ Kane stared at the grainy image displayed. The face could be anyone for all he c
 "Am I to understand that you knew about the breach too then?" He said calmly. Knopp blinked. The stone slab kept a
 straight face.
 
-"Non sir." He responded, standing ramrod straight and looking directly at Kane. "Standard operations, we keep a running
+"Non sir." He responded, standing ramisterod straight and looking directly at Kane. "Standard operations, we keep a running
 surveillance on all h-service levels et above."
 
 The accent was getting thicker with each sentence. _Hell of a poker face, but you're sloppy on the accent Knopp._ Kane
@@ -198,9 +198,9 @@ whatever you need, and deliver the remains to the doctor."
 
 Knopp's hand twitched from years of unconscious habit, clearly meaning to salute, but refusing to out of conformity.
 Alphason had been similar, but he had dropped the habit much quicker that Knopp. Knopp turned on a dime, and started for
-the door. Kane saw Dr Ziatovsicsh watch for a second before starting after him.
+the door. Kane saw doctor Ziatovsicsh watch for a second before starting after him.
 
-"Sir, the power plant is starting to power back up!" Dr Ziatovsicsh part yelled, part cried.
+"Sir, the power plant is starting to power back up!" doctor Ziatovsicsh part yelled, part cried.
 
 That sent shivers down Kane's spine.
 
@@ -211,7 +211,7 @@ big shock.
 "It's powering UP?" Kane asked, eyeing Ziatovsicsh with a glare that could have iced an acetylene torch.
 
 "Yes! That's what I said! The relics they're powering back up on their own. Clearly whatever Alphason is doing is
-affecting them. It's Affecting all of them." Dr Ziatovsicsh said, his words stumbling worse than Knopp's accent had.
+affecting them. It's Affecting all of them." doctor Ziatovsicsh said, his words stumbling worse than Knopp's accent had.
 
 Kane's mind whirred with possibilities. This was very good news.
 
@@ -223,7 +223,7 @@ control. "And that's month over month. Maybe triple by this time nex year."
 
 "Triple?" Kane asked, barely believing his ears.
 
-"Yes!" Dr Ziatovsicsh exclaimed, mirroring Kane's own excitement.
+"Yes!" doctor Ziatovsicsh exclaimed, mirroring Kane's own excitement.
 
 "And Alphason is doing this?" Kane said, felling mixed about this.
 
@@ -288,7 +288,7 @@ Kane Carthatch strutted over to his desk and keyed the intercom.
 
 "Tailings." He said, and waited for a reply.
 
-"Yes Mr Carthatch?" Tailing's voice responded, almost immediately.
+"Yes mister Carthatch?" Tailing's voice responded, almost immediately.
 
 "I want you to fire all the floor staff on this level." Kane paused a second. "Wait. I want you to find out how Ziatov
 got into my office before me, fix it so he can never do it again, then fire everyone on this floor."
@@ -297,7 +297,7 @@ There was a pregnant pause. Clearly Tailings was thinking through the implicatio
 
 "You're excluded, of course." Kane added.
 
-"Ah. Of course Mr Carthatch. Should I reschedule your other meetings?" He said, and Kane detected a noticeable relaxing
+"Ah. Of course mister Carthatch. Should I reschedule your other meetings?" He said, and Kane detected a noticeable relaxing
 in the man's tone.
 
 "No. I don't expect you to get this done today. But on that note, I want you to keep tabs on Knopp and Ziatov. They're
