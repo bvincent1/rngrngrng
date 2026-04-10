@@ -21,8 +21,8 @@ learn about this diviner of architects, but his father had simply told him to ig
 _The little people will not matter._ Kane still thought on those words often. Nobody would matter when it was all said
 and done, but some would last longer than others.
 
-"Sir I've prepped your office. You're to begin with Dr Ziatovsicsh first. After that you have a follow-up with Mr
-Kalospov concerning the acquisition of viatech." said the familiar voice of his assistant, Tailings. Kane didn't
+"Mr Carthatch I've prepped your office. You're to begin with Dr Ziatovsicsh first. After that you have a follow-up with
+Mr Kalospov concerning the acquisition of viatech." said the familiar voice of his assistant, Tailings. Kane didn't
 actually know his first name.
 
 "Hmmf." Kane grumbled, knowing full well that his first meeting was with the Doctor. Ziatovsicsh had been the one to
@@ -272,7 +272,38 @@ Ziatovsicsh nodded his head knowingly.
 doors.
 
 He watched as the two, who could not be more polar opposites made their way to the door. He vaguely wondered how that
-pair would work together. Once they left Kane allowed himself to relax, taking a deep breath.
+pair would work together. Once they left Kane allowed himself to relax, taking a deep breath. _And Out_. He checked his
+watch, attentive to the time in case someone else was outside his door. Thankfully he had a few minutes to spare.
+Savouring the moment, he stood up, and walked over to the window, intent on taking in the view. The floor to ceiling
+windows, combined with the towering view, afforded him the best view of the city. He could see each blok, and then the
+wall, and past that the horizon. Things were going to change, he felt it. Whatever was happening, he would helm the
+corporation. He would guide it, and negotiate new charters, new contracts and usher in an unprecedented flow of wealth
+into the already 'precedented hoards they had acquired. He could see it all. This city was just a dead end, and while it
+was the core of their power, it would have to be paved over to bring about this new vision. He would be the one.
 
--- go on about how he's excited, and then somehow remind himself to fire the floor staff, and get Tailings onto how Dr
-Ziatovsicsh got into his office.
+Kane felt the sun shine on him, even if it was though the dismal clouds that persisted here. He turned around, feeling
+like a god. With this new development, he would finally crack this city. Which reminded him.
+
+Kane Carthatch strutted over to his desk and keyed the intercom.
+
+"Tailings." He said, and waited for a reply.
+
+"Yes Mr Carthatch?" Tailing's voice responded, almost immediately.
+
+"I want you to fire all the floor staff on this level." Kane paused a second. "Wait. I want you to find out how Ziatov
+got into my office before me, fix it so he can never do it again, then fire everyone on this floor."
+
+There was a pregnant pause. Clearly Tailings was thinking through the implications.
+
+"You're excluded, of course." Kane added.
+
+"Ah. Of course Mr Carthatch. Should I reschedule your other meetings?" He said, and Kane detected a noticeable relaxing
+in the man's tone.
+
+"No. I don't expect you to get this done today. But on that note, I want you to keep tabs on Knopp and Ziatov. They're
+not to be trusted. Actually get someone from data analysis on it. This is first priority, and then the latter matter."
+Kane smiled to himself, feeling smugly confident in these decisions.
+
+"Of course. Anything else?" Tailings asked.
+
+"No." Kane hung up.
