@@ -24,6 +24,7 @@ mean the difference between survival and total destruction.
 5. [ragtag team](./book/chapter5.md)
 6. [push and pull](./book/chapter6.md)
 7. [Dreamweaver](./book/chapter7.md)
+8. [misalignment of priorities](./book/chapter8.md)
 
 ## Formatting
 
