@@ -21,9 +21,9 @@ learn about this diviner of architects, but his father had simply told him to ig
 _The little people will not matter._ Kane still thought on those words often. Nobody would matter when it was all said
 and done, but some would last longer than others.
 
-"mister Carthatch I've prepped your office. You're to begin with doctor Ziatovsicsh first. After that you have a follow-up with
-mister Kalospov concerning the acquisition of viatech." said the familiar voice of his assistant, Tailings. Kane didn't
-actually know his first name.
+"mister Carthatch I've prepped your office. You're to begin with doctor Ziatovsicsh first. After that you have a
+follow-up with mister Kalospov concerning the acquisition of viatech." said the familiar voice of his assistant,
+Tailings. Kane didn't actually know his first name.
 
 "Hmmf." Kane grumbled, knowing full well that his first meeting was with the Doctor. Ziatovsicsh had been the one to
 schedule this meeting on the insistence that it would be 'the most important meeting he'd have all month'. The double
@@ -171,8 +171,8 @@ Kane stared at the grainy image displayed. The face could be anyone for all he c
 "Am I to understand that you knew about the breach too then?" He said calmly. Knopp blinked. The stone slab kept a
 straight face.
 
-"Non sir." He responded, standing ramisterod straight and looking directly at Kane. "Standard operations, we keep a running
-surveillance on all h-service levels et above."
+"Non sir." He responded, standing ramisterod straight and looking directly at Kane. "Standard operations, we keep a
+running surveillance on all h-service levels et above."
 
 The accent was getting thicker with each sentence. _Hell of a poker face, but you're sloppy on the accent Knopp._ Kane
 was struggling to hold his gaze, like a staring contest with a boulder. "We have you to thank then. It seems the doctor
@@ -297,8 +297,8 @@ There was a pregnant pause. Clearly Tailings was thinking through the implicatio
 
 "You're excluded, of course." Kane added.
 
-"Ah. Of course mister Carthatch. Should I reschedule your other meetings?" He said, and Kane detected a noticeable relaxing
-in the man's tone.
+"Ah. Of course mister Carthatch. Should I reschedule your other meetings?" He said, and Kane detected a noticeable
+relaxing in the man's tone.
 
 "No. I don't expect you to get this done today. But on that note, I want you to keep tabs on Knopp and Ziatov. They're
 not to be trusted. Actually get someone from data analysis on it. This is first priority, and then the latter matter."
