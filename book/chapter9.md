@@ -134,7 +134,7 @@ chew them up from another angle.
 
 "fifth squad! sepulcher casting!"
 
-A new voice yelled out over the global channel. That was his command, DeLam. O'Delt had just been ordered to switch to
+A new voice yelled out over the global channel. That was his command, Lamb. O'Delt had just been ordered to switch to
 their squad comms. O'Delt was halfway to reaching his belt where he kept his comm pack.
 
 "Second squad! sepulcher casting!"
@@ -143,19 +143,19 @@ O'Delt Recognized the second squad commands voice, Betchek. He finally reached h
 clicks to get to his squad channel.
 
 "-ove forwards into the city, and get a cross fire. Rally 2 is the choke, get there, get into position." He tunned in.
-Lam was clearly reved up. This was a new command for him, since their squad command Lechii had been selected for the
+Lamb was clearly reved up. This was a new command for him, since their squad command Lechii had been selected for the
 infiltration. O'Delt did not mind Lechii. A good man, if a bit loose on regulations and rules.
 
 "We're supporting first, lets make it look good! Any questions?" He hastily added "Open comms."
 
 "How far is rally 2?" O'Delt asked, knowing full well they would be cutting it close.
 
-"Uhhh, it's-" Lam faded out, clearly searching for the location on his tablet. "It'ssss west four, two north. And that's
-the route we're gonna take."
+"Uhhh, it's-" Lamb faded out, clearly searching for the location on his tablet. "It's... west four, two north. And
+that's the route we're gonna take."
 
 "Let's get moving then." a gruff female voice, Epsis, grunted over the comms.
 
-"Fifth squad, move out!" Lam yelled.
+"Fifth squad, move out!" Lamb yelled.
 
 O'Delt felt his heart skip a beat. Now was his chance to prove himself. Show the others that he was worth it. He pushed
 off the ground, and stood up to his full height. He was the at the edge of their formation, positioned closest to the
@@ -164,7 +164,47 @@ road. He saw them take off at a quick pace, and he quickly matched it. He almost
 he decided to keep to the flank. He would keep his role of scout to heart. O'Delt knew that it was only a brevet role.
 Normally a prestigious role in a squad, but today it was an excuse to keep him out of danger. Still he was determined.
 
-He pulled his bullpup configured riffle close, and took off towards the derelict buildings at the edge of the city.
-Horribly rusted metal, and cracked waist high brick broke up the limits, and he effortlessly leapt over them. One
-obstacle after the other, he charged forwards. Out of the corner of his eye he saw fifth squad off to his side, matching
-his pace, but angling for a more direct route in line with a gravel road.
+He pulled his shortened rifle close, and took off towards the derelict buildings at the edge of the city. Horribly
+rusted metal, and cracked waist high brick broke up the limits, and he effortlessly leapt, sidestepped, or avoided them.
+One obstacle after the other, he charged forwards. Out of the corner of his eye he saw fifth squad off to his side,
+matching his pace, but angling for a more direct route in line with the remains of a gravel road. They kept pace
+together, loosely u shaped, with a second line behind that.
+
+"99, get up front, on our north side. I wanna know what we're running into." Lamb barked over the squad comm.
+
+"Acknowledge." O'Delt responded.
+
+He quickened his pace, and angled to cross in front of them.
+
+"Get a move on kid!"
+
+"Kid's got fresh legs, should make it in not time!"
+
+"Kid."
+
+He hated being know as the kid. He funneled that mild rage to push himself faster. It was only a few more strides before
+he made the edges of habitable dwellings, lean-to shacks, and threadbare tarps strung over boxes. He immediately lost
+sight of his squad, but he trusted them to keep direction. Despite their jeering, he was still proud to get this
+opportunity, and he was determined to do right by them. The slum quickly upgraded to shanty town and he soon found
+himself jogging past civilians. None of them gave him a second look, and a few even darted for cover in whatever holes
+they could find. His black outfit, served him the dual purpose of blending in out in the wastes, and here in the city.
+He tried to stick to sidewalks, and alleys, conscious of his direction in the maze of rickshaw homes. None of these
+places had been built on right angles. It made for hostile navigation, and could trap a newcomer in it's depths. O'Delt
+kept his nerves about him, always pushing forwards next to the main drags, careful to keep to the shadows and alleys.
+Before long he stumbled into a market, crowded with late evening shoppers. The stalls were haphazardly supported with
+rusted metal pipes and corrugated sheets. The smell was awful, and was worse than bad as the wasteland he had just spent
+the last few hours laying in. The people all regarded him with a mixed response. He was clearly equipped with a
+lightweight kit of webbing, mags, a lightweight plate, comm gear and his jacket. His rifle, and his sidearm probably
+stuck out, but he got the distinct impression that the market-goers were struggling to assign him to either slot of
+local gangster, or corporate goon. Some quickly decided he was neither and ignored him, while other made the same
+conclusion and scurried away like before. He scanned them, the stalls, and the mess.
+
+"Fifth squad, there's a market one click to your west, suggest you detour north by one, then continue west.
+Acknowledge?" O'Delt said into his comms.
+
+"Acknowledged." Lamb responded, hustling.
+
+O'Delt paused, breathing a little harder than he wanted to be. He debated how to get around this himself, when he saw
+some angry looking local elbowing their way through the crowd towards him. He inwardly groaned, and glanced back the way
+he had come. _Go loud, or stay quiet?_ Taking a better look at the man, O'Delt felt confident he could gun him down, but
+he did not really want to engage with him, or any others that might be milling about.
