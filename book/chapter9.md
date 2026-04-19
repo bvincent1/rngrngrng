@@ -206,5 +206,32 @@ Acknowledge?" O'Delt said into his comms.
 
 O'Delt paused, breathing a little harder than he wanted to be. He debated how to get around this himself, when he saw
 some angry looking local elbowing their way through the crowd towards him. He inwardly groaned, and glanced back the way
-he had come. _Go loud, or stay quiet?_ Taking a better look at the man, O'Delt felt confident he could gun him down, but
-he did not really want to engage with him, or any others that might be milling about.
+he had come. _Scare him off?_ O'Delt tempered his impulse to wave a gun in the air and firing wildly on account of the
+unwanted attention, and he might even draw fire. A quick scan of the perimeter and he saw a privacy shielded fence, with
+what he presumed a workyard on the other side. _There's my way out!_ He elbowed his was past filthy market goers, and
+angry stall owners, almost tripping some over in the process. A few hurled insults, and some halfhearted threats later,
+he made it to the fence. With both hands, he hauled himself up past his chest so he could see what lay beyond. It was a
+metal yard, parts and boxes scattered haphazardly in barely recognizable rows. He heard shouting coming from behind him
+and rather than look back, he swung his leg up, balanced precariously for a mere second and then leapt off and down into
+a small gap between a pile of rusted pipes and a box of unrecognizable parts. He landed with a thump in the gravel and
+mud scattered in the yard, and took off up the row. He pushed himself to run faster, to make uo for lost time, and to
+show his team he was the best. Just past the end of the row, he skidded to a halt in a small clearing just before a
+shop. Some workers were milling about, and noticed him immediately. Their combined looks of shock and worry quickly
+faded to anger. To his left he could see the gate, but it was shut and possibly locked. The shop had an open bay door,
+that looked big enough to fit the hauler he had watched earlier. Just past it, he thought he saw a glimpse of daylight
+on the other side. _The hard way then._ He grimly set his jaw, and took off for the bay door, ignoring the insults and
+threats of the workers who, for all their vitriol, stayed out of his way. _Probably helps I'm armed to the teeth._
+O'Delt smirked to himself. He bounded into the shop, a garage, and quickly darted for the light source he had just seen.
+Jumping over tools, and jogging past more startled workers, he aimed for a hallway leading to what he presumed to be the
+front. Someone opened a door and he nearly collided with them, but they jerked backwards at the last second. He heard
+louder yelling, and but he kept going. He was fully committed to this headlong charge, and he had his team counting on
+him. These people were just going about their day, and if all went well they would never had to deal with him again. The
+hallway opened out to some cross between a waiting room, and an office. He skidded to a halt on the filthy floor, and an
+absolutely terrified woman screamed out in panic. He involuntarily braced himself, but she just backed further into her
+office space, cowering behind her desk and computer. The windows faced another street, and he quickly dashed for the
+door before adding a hurried 'sorry' back the way he had come.
+
+In the narrow street he made better time, and he felt he could lower his reckless charge down to a firm jog. He kept to
+edges of the road, trying to break up his outline behind any rusted out vehicular hulks, and progressively dirtier
+mounds of combination trash and debris. He passed all sorts of buildings, mostly squat and abandoned looking, but they
+progressively started getting taller and more occupied. He quickly found himself on a busy thoroughfare
