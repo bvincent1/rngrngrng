@@ -210,28 +210,67 @@ he had come. _Scare him off?_ O'Delt tempered his impulse to wave a gun in the a
 unwanted attention, and he might even draw fire. A quick scan of the perimeter and he saw a privacy shielded fence, with
 what he presumed a workyard on the other side. _There's my way out!_ He elbowed his was past filthy market goers, and
 angry stall owners, almost tripping some over in the process. A few hurled insults, and some halfhearted threats later,
-he made it to the fence. With both hands, he hauled himself up past his chest so he could see what lay beyond. It was a
-metal yard, parts and boxes scattered haphazardly in barely recognizable rows. He heard shouting coming from behind him
-and rather than look back, he swung his leg up, balanced precariously for a mere second and then leapt off and down into
-a small gap between a pile of rusted pipes and a box of unrecognizable parts. He landed with a thump in the gravel and
-mud scattered in the yard, and took off up the row. He pushed himself to run faster, to make uo for lost time, and to
-show his team he was the best. Just past the end of the row, he skidded to a halt in a small clearing just before a
-shop. Some workers were milling about, and noticed him immediately. Their combined looks of shock and worry quickly
-faded to anger. To his left he could see the gate, but it was shut and possibly locked. The shop had an open bay door,
-that looked big enough to fit the hauler he had watched earlier. Just past it, he thought he saw a glimpse of daylight
-on the other side. _The hard way then._ He grimly set his jaw, and took off for the bay door, ignoring the insults and
-threats of the workers who, for all their vitriol, stayed out of his way. _Probably helps I'm armed to the teeth._
-O'Delt smirked to himself. He bounded into the shop, a garage, and quickly darted for the light source he had just seen.
-Jumping over tools, and jogging past more startled workers, he aimed for a hallway leading to what he presumed to be the
-front. Someone opened a door and he nearly collided with them, but they jerked backwards at the last second. He heard
-louder yelling, and but he kept going. He was fully committed to this headlong charge, and he had his team counting on
-him. These people were just going about their day, and if all went well they would never had to deal with him again. The
-hallway opened out to some cross between a waiting room, and an office. He skidded to a halt on the filthy floor, and an
-absolutely terrified woman screamed out in panic. He involuntarily braced himself, but she just backed further into her
-office space, cowering behind her desk and computer. The windows faced another street, and he quickly dashed for the
+he made it to the fence.
+
+With both hands, he hauled himself up past his chest so he could see what lay beyond. It was a metal yard, parts and
+boxes scattered haphazardly in barely recognizable rows. He heard shouting coming from behind him and rather than look
+back, he swung his leg up, balanced precariously for a mere second and then leapt off and down into a small gap between
+a pile of rusted pipes and a box of unrecognizable parts. He landed with a thump in the gravel and mud scattered in the
+yard, and took off up the row. He pushed himself to run faster, to make uo for lost time, and to show his team he was
+the best. Just past the end of the row, he skidded to a halt in a small clearing just before a shop. Some workers were
+milling about, and noticed him immediately. Their combined looks of shock and worry quickly faded to anger. To his left
+he could see the gate, but it was shut and possibly locked. The shop had an open bay door, that looked big enough to fit
+the hauler he had watched earlier. Just past it, he thought he saw a glimpse of daylight on the other side. _The hard
+way then._ He grimly set his jaw, and took off for the bay door, ignoring the insults and threats of the workers who,
+for all their vitriol, stayed out of his way. _Probably helps I'm armed to the teeth._ O'Delt smirked to himself. He
+bounded into the shop, a garage, and quickly darted for the light source he had just seen. Jumping over tools, through
+sparks, and past more startled workers he aimed for a hallway leading to what he presumed to be the front. Someone
+opened a door and he nearly collided with them, but they jerked backwards at the last second. He heard louder yelling,
+and but he kept going. He was fully committed to this headlong charge, and he had his team counting on him. These people
+were just going about their day, and if all went well they would never had to deal with him again. The hallway opened
+out to some cross between a waiting room, and an office. He skidded to a halt on the filthy floor, and an absolutely
+terrified woman screamed out in panic. He involuntarily braced himself, but she just backed further into her cubicle
+space, cowering behind her desk and computer. The windows opened out onto another street, and he quickly dashed for the
 door before adding a hurried 'sorry' back the way he had come.
 
-In the narrow street he made better time, and he felt he could lower his reckless charge down to a firm jog. He kept to
-edges of the road, trying to break up his outline behind any rusted out vehicular hulks, and progressively dirtier
-mounds of combination trash and debris. He passed all sorts of buildings, mostly squat and abandoned looking, but they
-progressively started getting taller and more occupied. He quickly found himself on a busy thoroughfare
+Midway through taking off down the street, he caught a glimpse of something that made his heart stop and his blood run
+cold. In a doorway just next to the shop, he say a boy clutching something dangerous looking. The boy was younger
+looking, and filthy. Cloaked in a black tarp caked in rusty dust. His clothes were black and worm to shreds at the
+sleeves and the hems. One size too big on him, it made the boy look even more pallid. The hood lifted slightly to reveal
+his shaved head, and eyes of the deepest blue O'Delt had seen. His skin was pale, even paler than O'Delt's, and gave him
+a sense of death. The look the boy gave him was even worse. It was a pained expression. There was an infinite sadness in
+his eyes, mixed with a terrible feeling of loss. That stare transfixed O'Delt, and pinned him to the spot. The O'Delt
+felt his hands go numb as he fumbled to loosen the sling enough to properly hold his bullpup. The stare was not what
+worried O'Delt, but the familiar shape in the boys hands. O'Delt saw an outline that he swore looked exactly like own
+weapon. His hands finally found the straps, and he mustered up the feeling to properly grasp his weapon.
+
+"Get the fuck out of here you asshole!" a yell broke his focus.
+
+He turned to see several angry, but worried looking workers waving wrenches. The lead one looked more angry, his face
+was beet red and his eyes were bloodshot.
+
+In that split second O'Delt lost sight of the boy in the next doorway over, and having noticed his mistake, O'Delt
+reflexively brought his gun up intending to get a bead on that boy out of fear more than anything. But he was gone. The
+boy had vanished, soundlessly, wordlessly, and all that remained was a pile of trash wedged up against a boarded up
+building front. The metal sheets had small gaps, but nothing small enough that anyone could squeeze through that
+quickly.
+
+O'Delt ignored the workers and anxiously started jogging that direction, nervous that he would somehow run into the boy
+again. But he did not. O'Delt passed the whole block, firmly gripping his gun in a lowered stance, without incident. He
+picked up his pace.
+
+In the narrow street he made better time, and between that and the incident with the boy he felt he could lower his
+reckless charge down to a firm jog. He kept his gun in his hands and he practiced better discipline by keeping to edges
+of the road. Breaking up his outline behind the periodic rusted out vehicular hulks, and progressively dirtier mounds of
+combination trash and debris he made good progress. He passed all sorts of buildings, mostly squat and abandoned
+looking, but they progressively started getting taller and more occupied. He quickly found himself on a busy
+thoroughfare headed north-south with late worker traffic. There were a large number of vehicles of ~~a number of
+types~~. He followed the flow on foot for the remainder of his northbound jog.
+
+"Fifth squad, I'm headed north along a busy north-south road, going to cut at the mark and cross directly into rally 2.
+Suggest you follow. Acknowledge." O'Delt radioed.
+
+"Tick, Tick"
+
+_Lovely._ Even after that they are somehow still behind me. _Must have gotten caught up in something too._ He followed
+the street, Casually keeping his pace, but trying to do his best to not draw attention to himself.
