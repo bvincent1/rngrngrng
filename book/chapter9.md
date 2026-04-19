@@ -7,7 +7,7 @@ description: A peak into Del's past, concluding with Dreamweaver's intro
 
 "L ninety-nine, there's a cargo hauler coming down the trail. Acknowledge." He whispered into his mike.
 
-"Tick. Tick."
+**Tick. Tick.**
 
 The acknowledgements were always twice. Negatives were once. Two was good, one was bad. That was the rule. O'Delt never
 really thought about why it was, that was just the way it had always been. He was laying in a divot beside the road,
@@ -33,7 +33,7 @@ piles of waste past where he could watch, but still within their operations site
 
 "L fifty four. Hauler's outside the killbox. Acknowledge." A man's voice crackled over the comms.
 
-"Tick. Tick."
+**Tick. Tick.**
 
 O'Delt let out a sign he did not notice he had been holding. All this work just so they could keep going. This was
 probably the six'th town he had seen in the last few months, but it was hardly different from the others. Slowly O'Delt
@@ -112,11 +112,11 @@ down. He tried to focus on himself. Centered.
 "One acknowledges. Meet up at rally point two. Exactly relentless. Acknowledge." Alphason's steely voice crackled over
 the comms.
 
-"Tick. Tick."
+**Tick. Tick.**
 
-"Tick. Tick."
+**Tick. Tick.**
 
-"Tick. Tick."
+**Tick. Tick.**
 
 That was the signal. Alphason was going to send re-enforcements. He was not going to abandon the team. The teams had
 sent their acknowledgements, and now they were all getting ready for the next order. O'Delt did a silent thanks that he
@@ -242,7 +242,9 @@ a sense of death. The look the boy gave him was even worse. It was a pained expr
 his eyes, mixed with a terrible feeling of loss. That stare transfixed O'Delt, and pinned him to the spot. The O'Delt
 felt his hands go numb as he fumbled to loosen the sling enough to properly hold his bullpup. The stare was not what
 worried O'Delt, but the familiar shape in the boys hands. O'Delt saw an outline that he swore looked exactly like own
-weapon. His hands finally found the straps, and he mustered up the feeling to properly grasp his weapon.
+weapon. His hands finally found the straps, and he mustered up the feeling to properly grasp his weapon. Their was
+something familiar about this boy, but he could not place it. Something about the look of loss combined with the clear
+stubborn choice to fight. _Maybe?_
 
 "Get the fuck out of here you asshole!" a yell broke his focus.
 
@@ -264,13 +266,65 @@ reckless charge down to a firm jog. He kept his gun in his hands and he practice
 of the road. Breaking up his outline behind the periodic rusted out vehicular hulks, and progressively dirtier mounds of
 combination trash and debris he made good progress. He passed all sorts of buildings, mostly squat and abandoned
 looking, but they progressively started getting taller and more occupied. He quickly found himself on a busy
-thoroughfare headed north-south with late worker traffic. There were a large number of vehicles of ~~a number of
-types~~. He followed the flow on foot for the remainder of his northbound jog.
+thoroughfare headed north-south with late worker traffic. There were a large number of vehicles of a variety of makes
+and models. He followed the flow on foot for the remainder of his northbound jog.
 
 "Fifth squad, I'm headed north along a busy north-south road, going to cut at the mark and cross directly into rally 2.
 Suggest you follow. Acknowledge." O'Delt radioed.
 
-"Tick, Tick"
+**Tick. Tick.**
 
 _Lovely._ Even after that they are somehow still behind me. _Must have gotten caught up in something too._ He followed
-the street, Casually keeping his pace, but trying to do his best to not draw attention to himself.
+the street, doing his best to keep his pace, but trying to play it casual to avoid drawing attention. He tucked his
+bullpup under one arm, and his jacket, knowing full well that while not illegal, he could not afford to get into it with
+security this far away. After a few minutes of casual jogging, he stopped at what he knew to be the correct point.
+Further back he saw fifth squad jogging up the pedestrian way. They made quite the pack, and were the furthest O'Delt
+had ever seen from inconspicuous. O'Delt turned back towards the street. Vehicles still rumbled past, but he knew he
+heard the ~~recognizable~~ **whip, crack** of a stray shot. He needed to get across, but no vehicle looked in any hurry
+to slow down. He stubbornly refused to go any further and risk missing the rally point, so he made a conscious choice.
+_Lets get loud._ He swung his gun out from under his arm, shouldered it, and pointed it in the direction of the
+immediate oncoming traffic. He made eye contact with the nearest driver and saw their expression go from mild discomfort
+to extreme worry. Instead of having the desired effect however, they actually slammed on the accelerator, and shot
+forward, passing O'Delt in a dusty haze. The next driver was further back, and O'Delt had a decision to make. Ultimately
+he choose to put his life on the line in the most ludicrous way any of them could possibly have imagined. _Can't believe
+I'm going to die this way._ O'Delt took a deep breath and stepped out onto the road. The Next driver down made direct
+eye contact with him the moment he did, and O'Delt reflexively raise his free hand in what he hopped was the universal
+gesture of 'stop'. He watched as terror strick the driver's face and they slammed the brake. He heard tires screech, and
+then more, and more, and more tires after that. The look of terror was quickly replaced with utter rage as the driver
+yapped at him from behind their windshield. He could see their mouth moving, but could not hear anything above the
+honking and rumbling of the still moving traffic in front of and next to him in the opposite lane. He waved his gun back
+and forth while taking another step further into traffic. More and more cars slowed to a halt on the busy roadway, and
+soon everything was drowned out in vehicle horns and yelling.
+
+Not a second later he got a tap on his shoulder. He half expected some security grunt, but to his relief it was Lamb. He
+was huffing, as was the rest of the team, from a sprint they had made to catch up to him and get across. While the car
+horns did not fade, the yelling from them did. He watched faces go back to abject terror at the sight of a full squad of
+heavily armed mercenaries, panting and sweating, interrupt traffic traffic with their motley assortment of weapons.
+Abruptly O'Delt saw an opening at the far end of the roadway, and he joined his team towards the road wall. It was only
+a chest high barrier but he stayed to lift up as many as he could. He found he only needed to help Espis. She was taller
+than him, and weighed more than him, but he put on a brave face and stood in a bent position so she could step off him.
+She was their heavy weapons specialist and carried the most gear, so he really hopped someone was at the top to help.
+She smirked at him, knowing full well that he had bitten off more than he could chew, but stubbornly refused to spit.
+She handed him her heavy weapon and put a foot on his thigh, just above his bent knee. She let out a grunt, and O'Delt
+was barely able to withstand her bulk. He thought he might black out, but a second later he felt her weight ease and
+knew someone must have hauled her up. He turned around and yelled, intending to heft the gun over the barrier to her,
+but instead she dropped down and reached a hand up over it. He awkwardly lifted it with both hands surprised, but at the
+same time not, by how heavy it was. She grasped it with one hand and pulled it away from him. He then lifted both hands
+up, and was immediately relieved to get a helping loft from Lamb and Ximinez, their comms guy. They hauled up up and
+over in one smooth motion, and he landed gracefully among his squad mates.
+
+Each one had a slightly out of breath look about them, but deep down they all shared the same knowledge that this was
+it. On the other side of the barrier, and with the horns stopped each could hear the cracks and bangs of staccato gun
+fire. It echoed off the dense buildings, in a dizzying pattern, but each member knew the real direction it was coming
+from.
+
+"Sounds like the party's started without us." Lamb said with a grin. "Alright then, I want heavies on the ground floor,
+and support on top of buildings. O'Delt I want you to circle right, get to second and let them know we're here." Lamb
+slowly made eye contact with each squad member in turn. They all met his gaze with a fiery passion, intent on showing
+these corporate thugs -who had probably never fought any real battles in their lives, who was boss. "Let's em what the
+Lost can do!" Lamb yelled, and they all joined in a hearty roar.
+
+These grunts would learn today what it was like to fight a real battle. This was going to go poorly for them, and O'Delt
+could not help but feel a surge on confidence. He waited for the rest to take off down the narrow alleys, and followed
+Ximinez who had chosen to angle right, closer towards second squad. O'Delt was not going to engage, but he knew he
+needed to get a look at what he was dealing with before tracking down second and linking up with them.
