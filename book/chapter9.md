@@ -328,3 +328,30 @@ These grunts would learn today what it was like to fight a real battle. This was
 could not help but feel a surge on confidence. He waited for the rest to take off down the narrow alleys, and followed
 Ximinez who had chosen to angle right, closer towards second squad. O'Delt was not going to engage, but he knew he
 needed to get a look at what he was dealing with before tracking down second and linking up with them.
+
+He chased after Ximinez, following him down winding streets and narrow alleys. The construction here was much more
+haphazard than the fabrication district they had just charged through. These were all several storied buildings, but
+with no planning or oversight into how structurally sound they were. Several times O'Delt passed a stack of buildings
+that looked like they were ready to collapse onto one another. The wildly rusted metal sheets and poorly welded beams
+brought to mind a maze puzzle for rats. He had seen vids of experiments they used to run on them, the purpose lost of it
+was lost on him. But unlike the rats he and Ximinez did not get lost. Nobody from the Lost ever did for that matter.
+O'Delt always found he knew were something was, and it had served him impressively time and time again. They were all
+gifted like that. In spite of their company name, none of them could ever actually be lost. Ahead of him, Ximinez
+rounded a corner, and he lost sight of him. O'Delt heard a volley of automatic fire echo from past the next building,
+and he stopped just short of the corner.
+
+He peeked his head, hoping he had not jinxed anything. Out of the corner of his eye he saw an opening in the buildings.
+In the opening was another clearing containing a market square, just like the one he had seen earlier next to the fab
+yards, however the chaos in this market was much different. O'Delt immediately heard a staccato of heavy weapons fire,
+and the rhythmic blasting of a shotgun. He saw bullets chip holes in plastic, and spark off metal sheets and beams. The
+stalls were shattered, and under them he could see figures lying prone. In the limited daylight, he could not tell if
+they were innocent bystanders, or whatever remained of the infiltration team. Ahead of him, he saw Ximinez square up to
+a nearby wall and lean out to fire at some target outside O'Delt's view. He snaked up behind him, intending to get a
+better view of the scene, and try to locate the opposing force. Once he got close, Ximinez held out a hand and O'Delt
+siddled up next to him. He immediately heard a roar of gunfire open up from a few shacks up. The unmistakable noise of
+heavy machine gun fire filled him with hope. Ximinez backed off, and waved O'Delt forward giving him a chance to get a
+look at the chaos. It was a massacre.
+
+The square itself was tightly packed in on all sides by shacks of varying heights. In the wanning day he saw lights had
+been turned on in some, but he hoped those had just been abandoned in haste. The bright flash of machine gun fire
+illuminated
