@@ -348,10 +348,36 @@ stalls were shattered, and under them he could see figures lying prone. In the l
 they were innocent bystanders, or whatever remained of the infiltration team. Ahead of him, he saw Ximinez square up to
 a nearby wall and lean out to fire at some target outside O'Delt's view. He snaked up behind him, intending to get a
 better view of the scene, and try to locate the opposing force. Once he got close, Ximinez held out a hand and O'Delt
-siddled up next to him. He immediately heard a roar of gunfire open up from a few shacks up. The unmistakable noise of
+sidled up next to him. He immediately heard a roar of gunfire open up from a few shacks up. The unmistakable noise of
 heavy machine gun fire filled him with hope. Ximinez backed off, and waved O'Delt forward giving him a chance to get a
-look at the chaos. It was a massacre.
+look at the chaos. He Gave O'Det a warning gesture, and O'Delt knew not to linger. It was a massacre.
 
-The square itself was tightly packed in on all sides by shacks of varying heights. In the wanning day he saw lights had
-been turned on in some, but he hoped those had just been abandoned in haste. The bright flash of machine gun fire
-illuminated
+The square itself was tightly packed in on all sides by shacks of varying heights. In the wanning light he saw lights
+had been turned on in some shacks, but he hoped those had just been abandoned in haste. The bright flash of machine gun
+fire illuminated the square in harsh spastic flare, but he now had a better view of the stalls in the center. The vast
+majority had been riddled with bullets, and he could see a portion of them had been blown to smithereens. In the rubble
+he saw the infiltration team. There were several prone figures leaking dark fluid, and he saw their medic cowering
+nearby trying to patch as best they could. He saw two figures nearby, taking cover now that the machine gun fire had
+provided some much needed suppression. In the dark O'Delt could not make out who was left standing, but the original
+squad had been made up of ten. That meant that about half of them were left. His blood surged with anger and he felt
+heat rise up into his face. But that was not the end of it. Surrounding the squad were dozens of bodies, innocent
+bystanders, lying prone in pools of blood. Now that ne saw them he could hear screaming over the raucous gunfire coming
+from somewhere in the mess. It was more than a massacre, it was an inhumane slaughter. These corporate goons were
+knowingly sacrificing their own civilians to get at them.
+
+O'Delt scanned the far side, trying to pick out any more psychos he could take a shot at, and revenge his fallen
+brothers, as well as the sacrificed civilians. In the darkness he saw pitch black shapes looming in the slums. He could
+not tell if they were innocents, or adversaries, until one of them on a roof made a movement and he saw bright flashes
+illuminate them against the rapidly darkening sky. Their shots went wide, and the assailant was immediately peppered
+with heavy fire. On the ground O'Delt saw figures in black raising barricades at the edges. These barricades had angled
+lines, and did not resemble the hodgepodge assembly the surrounding buildings were comprized of. These barricades looked
+specially fabricated out of some sort of non-reflective, slotted material. O'Delt could see that some were interlaced
+into one another, while others were simply adhered to walls via unknown means. The dark figures behind them were heavily
+armored, and before O'Delt knew it they had erected a significant bulkhead of what O'Delt could only assume was a their
+beachhead. Another flash from a roof, and this time O'Delt ducked back. He heard a booming reply, and recognized the
+sound as a shotgun.
+
+He was shocked. How could this have happened? How could they have been sidelined like this? He knew the squad had been
+handpicked to run this op, and each member had been either an up-coming, or practiced veteran. This seemed like such a
+clusterfuck when he compared them against their previous operations. Something must have gone terribly wrong for it to
+end up like this. Ximinez gave him a firm tap, and O'Delt swapped positions once more.
