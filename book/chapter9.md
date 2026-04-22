@@ -68,7 +68,7 @@ but he had not made a complaint of it. He would never complain. O'Delt dreamt of
 leading an infiltration team. Together him and his team would lead a flawless grab, and score big time. He would prove
 his worth. He would earn the respect of the rest of them. But today was not it. O'Delt scanned the trail. Wondering what
 the others were getting into. He knew who was on the mission. Some of their best were their. Zetes, Takolov, Lechii, and
-even the legendary DeKap. O'Rhonn was on the team too. God he hated that guy. O'Rhonn was just an asshole in general,
+even the legendary DeKapp. O'Rhonn was on the team too. God he hated that guy. O'Rhonn was just an asshole in general,
 but he had always had it out for him. He would probably never hear the end of it. Who knows, maybe he would get lucky
 and catch a round in the neck. O'Rhonn silenced forever. O'Delt felt bad about that, he knew their medic was on her last
 legs. They all worried how much longer Philo would hang on, and nobody wanted to deal with her replacement. Ep. At least
@@ -91,7 +91,7 @@ confident. Maybe it had finally caught up with them.
 
 "This is one, everyone stay where you are. L thirty two, I need a status report now." O'Delt felt a surge of relief.
 This was who he had wanted to hear. Alphason. Their commander. Their leader. Some even said their best. He had been the
-one who had banded them all together and turned them from lost, into the Lost.
+one who had banded them all together and turned them into who they were today.
 
 "Thirty-two! We've been ambushed! Twenty-one sent up the flare, and we only just got out!"
 
@@ -103,9 +103,9 @@ That was bad. Takolov and Lechii were down.
 
 "We lost twenty-one." Zetes' voice lowered. "MIA."
 
-O'Delt felt that loss in his gut. In his head, he rationalized that DeKap was just missing. That he would show up
-somewhere later. He was a legendary scout. He had come back from impossible odds before. O'Delt pushed his worries deep
-down. He tried to focus on himself. Centered.
+O'Delt felt that loss in his gut. In his head, he rationalized that DeKapp was just missing. That he would show up
+somewhere later. He was a legendary scout and he had come back from impossible odds before. O'Delt pushed his worries
+deep down. He tried to focus on himself.
 
 "Over." Zetes' voice crackled over the comms.
 
@@ -118,12 +118,12 @@ the comms.
 
 **Tick. Tick.**
 
-That was the signal. Alphason was going to send re-enforcements. He was not going to abandon the team. The teams had
-sent their acknowledgements, and now they were all getting ready for the next order. O'Delt did a silent thanks that he
-had already done a weapons check. He also cursed himself that perhaps he had left his gear unstowed back at camp. He
-could not remember if he had thought to pack it up like he was supposed to or not. Too late now. He Thought about
-risking it, sending a message back, but he would get chewed for sure if he broke comms. It was not dire yet. Maybe they
-would had time.
+That was the signal. Alphason was going to send reinforcements. He was not going to abandon the team. The teams had sent
+their acknowledgements, and now they were all getting ready for the next order. O'Delt did a silent thanks that he had
+already done a weapons check. He also cursed himself that perhaps he had left his gear unstowed back at camp. He could
+not remember if he had thought to pack it up like he was supposed to or not. Too late now. He Thought about risking it,
+sending a message back, but he would get chewed for sure if he broke comms. It was not dire yet. Maybe they would have
+time.
 
 "Fifth squad, and second squad, rally two. The rest rally 1, palace universe." Alphason's voice rang clear again.
 
@@ -144,7 +144,8 @@ clicks to get to his squad channel.
 
 "-ove forwards into the city, and get a cross fire. Rally 2 is the choke, get there, get into position." He tunned in.
 Lamb was clearly reved up. This was a new command for him, since their squad command Lechii had been selected for the
-infiltration. O'Delt did not mind Lechii. A good man, if a bit loose on regulations and rules.
+infiltration. O'Delt did not mind Lechii. A good man, if a bit loose on regulations and rules. Lamb was alrigh, but he
+leaned more towards the regs to offset his command's style.
 
 "We're supporting first, lets make it look good! Any questions?" He hastily added "Open comms."
 
@@ -232,6 +233,43 @@ out to some cross between a waiting room, and an office. He skidded to a halt on
 terrified woman screamed out in panic. He involuntarily braced himself, but she just backed further into her cubicle
 space, cowering behind her desk and computer. The windows opened out onto another street, and he quickly dashed for the
 door before adding a hurried 'sorry' back the way he had come.
+
+No sooner had O'Delt taken his eyes off the building, did he spot a vehicle moving up the street, in the same direction
+as him. It was a bulky transport, and O'Delt deftly dodged into the cover of a nearby vehicle wreck. The big tires
+scraped and crushed the loose rocks on the street, and he heard a loud scrape as it bulldozed it's way past a pile of
+bricks that had spilled. From cover, O'Delt caught a better look at it as it passed him. It was painted mat-black and
+had sharpe angled lines of metal and plating. Each plate was firmly bolted into place and the only windows that were
+visible were slits on the fore and after of the vehicle. It was tall, and he thought he saw a weapon mount of the roof.
+O'Delt's heart dropped at the sight of the thing. It was clearly headed the same way he way, which was a bad sign. Based
+on the size there could be a dozen of corporate soldiers inside and, combined with the heavy weapon mount, it would
+obliterate them. He felt the terror well up inside him, threatening to take over. His legs wanted to run, to get away
+and try to figure it out later. His heart on the other hand knew better. He knew what he had to do, even if it went
+against what most might consider his purpose. He grabbed his rifle and shouldered it. With a soft click he thumbed off
+the safety, and in one smooth motion, stood up and opened fire on the hulking vehicle. It was only afterwards he
+realized what a gamble it had been, not for taking on some unknown number of troops single handedly, but even
+considering that the transport could very well have chosen to ignore him. They could just shrug him off as some irate
+local and continue on their tirade. Surely their order were more important than settling any dispute or rivalry. His gun
+clicked empty. As luck would have it, they did not do that.
+
+Tires screeched as all six locked up, and he heard a loud **thump** as it collided with a parked vehicle. The driver had
+clearly over corrected, and now the vehicle was cocked slightly. Perfect. He ducked and coordinated his legs and arms
+independently to move and reload in the smooth and practiced fashion that had been relentlessly drilled into him by
+DeKapp. He scuttled further back along the street intending to put a bit of ground between him and the corporate forces.
+He heard a clunk and then rapid yelling as he assumed the corpos disembarked and fanned out to try and pin down whomever
+was stupid enough to try and take them on.
+
+"Fifth squad, I've engaged corpo-hostiles along a north-south road. Requesting you continue west, then south and catch
+them from behind. I'll try and draw them south. Acknowledge." O'Delt chimed into his throat mike. He prayed for a
+response. Something. Even to get chewed out for such a stupid move.
+
+**Tick. Tick.**
+
+"We're on our way, hold them off." Lamb responded, with no hint of emotion in his voice.
+
+O'Delt felt elated, all he had to do was keep them occupied. Of course that was easier said than done. He peaked over
+his cover and saw the troops fanning out into the street. They had not yet finished disembarking, which meant there weer
+a lot of them and that it was now or never. O'Delt stood up again and unloaded on the transport hatch, hopping to catch
+as many of them flat footed as he could.
 
 Midway through taking off down the street, he caught a glimpse of something that made his heart stop and his blood run
 cold. In a doorway just next to the shop, he say a boy clutching something dangerous looking. The boy was younger
