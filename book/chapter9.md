@@ -267,9 +267,52 @@ response. Something. Even to get chewed out for such a stupid move.
 "We're on our way, hold them off." Lamb responded, with no hint of emotion in his voice.
 
 O'Delt felt elated, all he had to do was keep them occupied. Of course that was easier said than done. He peaked over
-his cover and saw the troops fanning out into the street. They had not yet finished disembarking, which meant there weer
-a lot of them and that it was now or never. O'Delt stood up again and unloaded on the transport hatch, hopping to catch
-as many of them flat footed as he could.
+his cover and saw the troops fanning out into the street. They had not yet finished disembarking, which meant there were
+a lot of them and that it was now or never. O'Delt stood up again and took aim the transport hatch, hopping to catch as
+many of them flat footed as he could.
+
+**brrrrttttttttttttt, ping pppppppping**
+
+He tried to should the recoil as best he could, but a few shots went wide. Once he recovered, he saw a number of
+troopers had gone down, and some were left stumbling. They had heavy armor on that, in addition to their heads and
+chest, covered their arms and legs. O'Delt worried that he had bitten off more than he could chew, but he ducked down to
+reload again. No sooner had he ducked, did he hear shots ring out from down the street and even a pair of metallic pings
+as some connected with the vehicle he was crouched behind. His heart was racing now. He had to keep them occupied for an
+unknown amount of time while he waited for his team to arrive and back him up. _No way out but through._ He took a deep
+breath and centered himself. Drawing on all his training and practice to help him.
+
+**Ping, ping, ping**
+
+The shots were coming in fast, threatening to break his concentration. It could only have been a few seconds at most,
+but to him it felt like a lifetime. He breathed out. He breathed in. Immidiately he broke from cover away from the
+troopers and crouch sprinted to the vehicle behind him. It was a rusted hulk, and he barely had any time to tuck himself
+behind the block before it too started taking fire. He turned, popped up and sprayed a short burst at the nearest figure
+that had broke cover. He saw the figure grunt as shots connected up their torso until some connected with soft material
+underneath their arm. He ducked back and moved once again. He successfully pulled this off two more times before he
+heard a deafening boom that tossed him flat on the opposite side of the street.
+
+His head was ringing, and it took all his effort just to crawl into the collapsed bulk of a pile of bricks that had
+serendipitously been left nearby. He shuddered as he tried to take in a breath, and he found that the wind had been
+knocked out of him. He chocked on nothing, and he gasped for air for a few perilous seconds.
+
+**Ugghhhhh**
+
+He finally gasped. The air returned to his lungs. Now he could hear the solid thumps as rounds dug into the bricks and
+he knew that another grenade like that would end him. He thought he heard a burst from up the street, along the walkway,
+and without even aiming he held his gun out and fired blindly towards it. There were no satisfying thumps or yells and
+before he felt satisfied his gun clicked empty. He gritted his teeth as a sering pain shot up his arm. He pulled it
+back, fearing the worst, and even fearing to check. He willed himself to look and he saw that he had been grazed along
+his elbow. While it did not change how much it hurt he still felt relieved that it was the least serious wound he could
+have received. _Missed me fuckers!_ Blood quickly welled up and he felt the warmth drip up his arm to his wrist were it
+spilled out onto the front of his coat. _Now would be great Lamb!_ He winced as another round threw up a cloud of brick
+dust next to his face. He wished he had something besides his gun to use, and he wondered if this would be it.
+
+Just at that moment he heard an eruption of gunfire from further up the street. It was a simultaneous ~~armada~~ of fire
+and O'Delt felt more relieved in that instant than he had felt in a long time. He could not help but smiling before the
+raucous gunfire ended, and it lasted several seconds. _Taking no chances I guess._ When the sound died away he waited,
+unsure if any of the troopers had survived. He suddenly remembered being empty and braced himself mentally to load
+another mag. He only had one left, but he felt it enough to get through this now that the odds had been evened, if not
+decimated, in his favor.
 
 Midway through taking off down the street, he caught a glimpse of something that made his heart stop and his blood run
 cold. In a doorway just next to the shop, he say a boy clutching something dangerous looking. The boy was younger
