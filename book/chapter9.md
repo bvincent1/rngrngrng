@@ -288,8 +288,9 @@ but to him it felt like a lifetime. He breathed out. He breathed in. Immidiately
 troopers and crouch sprinted to the vehicle behind him. It was a rusted hulk, and he barely had any time to tuck himself
 behind the block before it too started taking fire. He turned, popped up and sprayed a short burst at the nearest figure
 that had broke cover. He saw the figure grunt as shots connected up their torso until some connected with soft material
-underneath their arm. He ducked back and moved once again. He successfully pulled this off two more times before he
-heard a deafening boom that tossed him flat on the opposite side of the street.
+underneath their arm. He ducked back and moved once again. He successfully pulled this off two more times, and he even
+made it opposite the market, which saw people scattering in the opposite direction, before he heard a deafening boom
+that tossed him flat on the opposite side of the street.
 
 His head was ringing, and it took all his effort just to crawl into the collapsed bulk of a pile of bricks that had
 serendipitously been left nearby. He shuddered as he tried to take in a breath, and he found that the wind had been
@@ -301,18 +302,54 @@ He finally gasped. The air returned to his lungs. Now he could hear the solid th
 he knew that another grenade like that would end him. He thought he heard a burst from up the street, along the walkway,
 and without even aiming he held his gun out and fired blindly towards it. There were no satisfying thumps or yells and
 before he felt satisfied his gun clicked empty. He gritted his teeth as a sering pain shot up his arm. He pulled it
-back, fearing the worst, and even fearing to check. He willed himself to look and he saw that he had been grazed along
-his elbow. While it did not change how much it hurt he still felt relieved that it was the least serious wound he could
-have received. _Missed me fuckers!_ Blood quickly welled up and he felt the warmth drip up his arm to his wrist were it
-spilled out onto the front of his coat. _Now would be great Lamb!_ He winced as another round threw up a cloud of brick
-dust next to his face. He wished he had something besides his gun to use, and he wondered if this would be it.
+back, fearing the worst, even fearing to check. He willed himself to look. He saw nothing at first, and when he adjusted
+his sleeve a thin trickle of blood dripped out. It thad to be a graze somewhere along his elbow. While it did not change
+how much it hurt, he still felt relieved that it was probably the least serious wound he could have received. _Missed me
+fuckers!_ He felt warmth drip up his arm to his wrist were it spilled out onto the front of his coat. _Now would be
+great Lamb!_ He winced as another round threw up a cloud of brick dust next to his face. He wished he had something
+besides his gun to use, and he wondered if this would be it. His plan had been to move into the market which had better
+concealment now seemed impossible as he had let himself get pinned down. More shots peppered all around him and he
+struggled to focus on a solution.
 
-Just at that moment he heard an eruption of gunfire from further up the street. It was a simultaneous ~~armada~~ of fire
-and O'Delt felt more relieved in that instant than he had felt in a long time. He could not help but smiling before the
-raucous gunfire ended, and it lasted several seconds. _Taking no chances I guess._ When the sound died away he waited,
-unsure if any of the troopers had survived. He suddenly remembered being empty and braced himself mentally to load
-another mag. He only had one left, but he felt it enough to get through this now that the odds had been evened, if not
+Just at that moment he heard an eruption of gunfire from further up the street. It was a simultaneous roar of sustained
+gun fire and O'Delt felt more relieved in that instant than he had felt in a long time. He could not help but smiling,
+even before the raucous gunfire ended. _Taking no chances I guess._ Several seconds later, when the sound died away, he
+wondered if any of the troopers had survived. He quickly remembered his magazine was empty and braced himself mentally
+to load another mag. He only had one mag left, but would be enough. He was confident The odds had been evened, if not
 decimated, in his favor.
+
+"fifth squad, that you?" he chimed into his mike.
+
+"Come on out ninety nine." Lamb echoed in his earpiece and from down the street.
+
+O'Delt was relieved to hear Lamb's voice. He braced himself, suddenly exhausted, but he refused to give away any of it
+physically in front of the others. He turned onto all fours and pushed himself up, forgoing any tact in favor of just
+basking in the relief, even if only temporary. The carnage that lay before him took his breath away. Each member of
+fifth squad wa evenly spread out along the street and in front of them was at least two if not three dead troopers. The
+blood was spreading across the street like a river. All of them were face down on their chests, armor riddled. Quickly
+and methodically two of them went over each trooper checking for survivors, and examining their gear for any compatible
+equipment.
+
+"Good job kid!" Epsis grunted at him, and she went about inspecting her heavy machine gun.
+
+Lamb signalled to another squad member, Ximinez, "You think you gat drive this?" Indicating the transport awkwardly
+parked behind them.
+
+Ximinez turned around and mused for a second.
+
+"Worth a try." He said, clearly thinking out loud, then hustling towards it.
+
+O'Delt watched him jog away and then started walking towards them, exhausted, but eager to get back into the fight at
+rally two. Lamb watched him and at first he thought Lamb would scold him, but nothing. O'Delt heard a grunt, and then
+saw a pair of magazines lightly arcing towards him. He released his gun, counting on the sling, and reached to grab them
+from the air. They were both full and had nary a scratch on them. Typical corporate made. New and shiny, just the way
+they liked it. Tucking one under his arm he awkwardly released his current mag, and then slid the fresh one home. The
+catch snapped shut with a satisfying click. He leaned over the action and pulled the bolt to see if these new rounds
+would work. With a manual slowness he watched as it chambered, and then he paused, wondering where best to aim. The
+nearest trooper. He pulled the trigger and spat a few rounds into the corpse. _Solid._ Of course he knew going in that
+these rounds would _probably_ work since they used the same ammunition, be he had been taught to always check. Their
+company did scavenge most of their equipment, so it stood to reason that they would always have the opportunity to
+re-use any lost gear that their enemies had left lying around.
 
 Midway through taking off down the street, he caught a glimpse of something that made his heart stop and his blood run
 cold. In a doorway just next to the shop, he say a boy clutching something dangerous looking. The boy was younger
