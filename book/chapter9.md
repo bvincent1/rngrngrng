@@ -351,18 +351,29 @@ these rounds would _probably_ work since they used the same ammunition, be he ha
 company did scavenge most of their equipment, so it stood to reason that they would always have the opportunity to
 re-use any lost gear that their enemies had left lying around.
 
-Midway through taking off down the street, he caught a glimpse of something that made his heart stop and his blood run
-cold. In a doorway just next to the shop, he say a boy clutching something dangerous looking. The boy was younger
-looking, and filthy. Cloaked in a black tarp caked in rusty dust. His clothes were black and worm to shreds at the
-sleeves and the hems. One size too big on him, it made the boy look even more pallid. The hood lifted slightly to reveal
-his shaved head, and eyes of the deepest blue O'Delt had seen. His skin was pale, even paler than O'Delt's, and gave him
-a sense of death. The look the boy gave him was even worse. It was a pained expression. There was an infinite sadness in
-his eyes, mixed with a terrible feeling of loss. That stare transfixed O'Delt, and pinned him to the spot. The O'Delt
-felt his hands go numb as he fumbled to loosen the sling enough to properly hold his bullpup. The stare was not what
-worried O'Delt, but the familiar shape in the boys hands. O'Delt saw an outline that he swore looked exactly like own
-weapon. His hands finally found the straps, and he mustered up the feeling to properly grasp his weapon. Their was
-something familiar about this boy, but he could not place it. Something about the look of loss combined with the clear
-stubborn choice to fight. _Maybe?_
+Fifth squad quickly gathered next to the transport to inspect it and watch Ximinez fiddle with the controls. While it
+went against their usual style, O'Delt secretly hoped they would be able to get it working. He pictured them crashing
+onto the battlefield with one of these and showing the company how badass they were. Ximinez had already opened up the
+cab, and was fiddling with the controls. Epsis slowly pulled one of the twin rear hatches open, covering the interior
+with her heavy weapon one handed. Nobody expected to find any occupants, but it never hurt to be careful. The hatch
+swung open almost silently and they all found it empty dave for an equipment rack at the front. O'Delt heard a low roar
+from the front and an excited grunt from Ximinez.
+
+Lamb keyed his mike. "Load up, were ridding the rest of the way."
+
+O'Delt let out a sign of contempt. He stood outside an extra moment, still wary from his harrowing experience, thankful
+to still be alive, but fully intending to push on and in. Midway through embarking , he caught a glimpse of something
+that made his heart stop and his blood run cold. In a doorway just next to them, he say a boy clutching something
+dangerous looking. The boy was younger looking, and filthy. Cloaked in a black tarp caked in rusty dust. His clothes
+were black and worm to shreds at the sleeves and the hems. One size too big on him, it made the boy look even more
+pallid. The hood lifted slightly to reveal his shaved head, and eyes of the deepest blue O'Delt had seen. His skin was
+pale, even paler than O'Delt's, and gave him a sense of death. The look the boy gave him was even worse. It was a pained
+expression. There was an infinite sadness in his eyes, mixed with a terrible feeling of loss. That stare transfixed
+O'Delt, and pinned him to the spot. The O'Delt felt his hands go numb as he fumbled to loosen the sling enough to
+properly hold his bullpup. The stare was not what worried O'Delt, but the familiar shape in the boys hands. O'Delt saw
+an outline that he swore looked exactly like own weapon. His hands finally found the straps, and he mustered up the
+feeling to properly grasp his weapon. Their was something familiar about this boy, but he could not place it. Something
+about the look of loss combined with the clear stubborn choice to fight. _Maybe?_
 
 "Get the fuck out of here you asshole!" a yell broke his focus.
 
@@ -375,17 +386,45 @@ boy had vanished, soundlessly, wordlessly, and all that remained was a pile of t
 building front. The metal sheets had small gaps, but nothing small enough that anyone could squeeze through that
 quickly.
 
-O'Delt ignored the workers and anxiously started jogging that direction, nervous that he would somehow run into the boy
-again. But he did not. O'Delt passed the whole block, firmly gripping his gun in a lowered stance, without incident. He
-picked up his pace.
+"Fuck off scabs!" Epsis shouted over his shoulder, and she held an arm out to hoist O'Delt up. "Did you see something?"
+She asked him.
 
-In the narrow street he made better time, and between that and the incident with the boy he felt he could lower his
-reckless charge down to a firm jog. He kept his gun in his hands and he practiced better discipline by keeping to edges
-of the road. Breaking up his outline behind the periodic rusted out vehicular hulks, and progressively dirtier mounds of
-combination trash and debris he made good progress. He passed all sorts of buildings, mostly squat and abandoned
-looking, but they progressively started getting taller and more occupied. He quickly found himself on a busy
-thoroughfare headed north-south with late worker traffic. There were a large number of vehicles of a variety of makes
-and models. He followed the flow on foot for the remainder of his northbound jog.
+"Nothing." O'Delt shrugged it off, and then grabbed hold, thankful it was his good arm. He hunched over in the
+compartment, which was surprisingly spacious. The interior was a simply two benches against either ~~wall~~ and the
+equipment strapped to the bulkhead. There was a small hatch at the front for communicating with the driver, and a larger
+hatch in the middle for a heavy weapons mount. He felt the hold vibrate, and he quickly took a seat. With a sudden lurch
+the transport jolted backwards. Ximinez was either in a hurry or it was much more responsive than he had anticipated
+because as quickly as he had reversed he threw it into forwards and everyone inside swayed back and forth. The entire
+squad, save for Ximinez and Lamb were in the rear compartment. Epsis cautiously wandered to the ceiling hatch, clearly
+aware that Ximinez was driving like a madman and fumbled with the latch. Eventually she managed, one handed, and using
+her considerable bulk, threw it open with a loud thunk. Fresh air swirled down into the compartment and O'Delt felt
+himself relax slightly.
+
+"We loose something?" Lamb asked worriedly over the comms.
+
+"Just getting some air." Epsis yelled back at him through the cab slot. She was half crouched, half standing in the
+opening, head barely pocking out, watching their progress and taking in the rare chance to enjoy a view.
+
+Despite the narrow street they made much better time with the addition of their stolen transport. Ximinez swerved
+several times, bumping squad members into each other, trying to avoid piles of trash, debris, and abandoned rust heaps.
+O'Delt found there were tiny slits out the back hatches. He watched all sorts of buildings pass behind them. Most were
+squat and abandoned looking, but they progressively started getting taller and more occupied. There was a slow stop, and
+he squinted to see out the front slot to see blurry shapes passing perpendicular to them. They had made it to a busy
+thoroughfare headed north-south with late worker traffic. He heard a commotion from the cabin as Lamb and Ximinez
+discussed what to do next. Were they on foot, they could simply walk north and then cut across. In a vehicle they had
+more to consider.
+
+"Hey boss, I think there's warning lights on the roof. Betcha we could use those to cut through the traffic!" Epsis
+yelled past them into the cabin.
+
+"Great idea." Lamb voiced back through the slot, then in a slightly muffled and undirected tone "Fuck me, which button
+is it."
+
+O'Delt had to stifle a chuckle as he thought he heard mad clicking and scrambling of switched and toggles while the two
+up front tried every option they could see. To their credit it was a knob on the steering column, and everyone let out a
+quiet hurrah when Epsis thumped the ceiling in affirmation.
+
+"Hey O'Delt, you're bleeding." Zeke, who was sitting opposite pointed to his cuff.
 
 "Fifth squad, I'm headed north along a busy north-south road, going to cut at the mark and cross directly into rally 2.
 Suggest you follow. Acknowledge." O'Delt radioed.
