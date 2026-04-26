@@ -320,7 +320,7 @@ decimated, in his favor.
 
 "fifth squad, that you?" he chimed into his mike.
 
-"Come on out ninety nine." Lamb echoed in his earpiece and from down the street.
+"Clear! Come on out ninety nine." Lamb echoed in his earpiece and from down the street.
 
 O'Delt was relieved to hear Lamb's voice. He braced himself, suddenly exhausted, but he refused to give away any of it
 physically in front of the others. He turned onto all fours and pushed himself up, forgoing any tact in favor of just
@@ -345,19 +345,22 @@ saw a pair of magazines lightly arcing towards him. He released his gun, countin
 from the air. They were both full and had nary a scratch on them. Typical corporate made. New and shiny, just the way
 they liked it. Tucking one under his arm he awkwardly released his current mag, and then slid the fresh one home. The
 catch snapped shut with a satisfying click. He leaned over the action and pulled the bolt to see if these new rounds
-would work. With a manual slowness he watched as it chambered, and then he paused, wondering where best to aim. The
-nearest trooper. He pulled the trigger and spat a few rounds into the corpse. _Solid._ Of course he knew going in that
-these rounds would _probably_ work since they used the same ammunition, be he had been taught to always check. Their
-company did scavenge most of their equipment, so it stood to reason that they would always have the opportunity to
-re-use any lost gear that their enemies had left lying around.
+~~would work~~. With a manual slowness he watched as it chambered, and then he paused, wondering where best to aim. The
+nearest trooper. He pulled the trigger and spat a few rounds into the corpse.
 
-Fifth squad quickly gathered next to the transport to inspect it and watch Ximinez fiddle with the controls. While it
-went against their usual style, O'Delt secretly hoped they would be able to get it working. He pictured them crashing
-onto the battlefield with one of these and showing the company how badass they were. Ximinez had already opened up the
-cab, and was fiddling with the controls. Epsis slowly pulled one of the twin rear hatches open, covering the interior
-with her heavy weapon one handed. Nobody expected to find any occupants, but it never hurt to be careful. The hatch
-swung open almost silently and they all found it empty dave for an equipment rack at the front. O'Delt heard a low roar
-from the front and an excited grunt from Ximinez.
+"Clear!" He yelled
+
+_Solid._ Of course he knew going in that these rounds would _probably_ work since they used the same ammunition, but he
+had been taught to always check. Their company scavenged most of their equipment, so it stood to reason that they would
+always have the opportunity to re-use any lost gear that had been left lying around. He stowed the rest of the mags and
+checked what everyone else was doing.
+
+Fifth squad had gathered next to the transport to inspect it and watch Ximinez fiddle with the controls. While it went
+against their usual style, O'Delt secretly hoped they would be able to get it working. He pictured them crashing onto
+the battlefield with one of these and showing the company how badass they were. Epsis slowly pulled one of the twin rear
+hatches open, covering the interior with her heavy weapon one handed. Nobody expected to find any occupants, but it
+never hurt to be careful. The hatch swung open almost silently and they all found it empty, save for an equipment rack
+at the front. O'Delt heard a low roar from the front and an excited grunt from Ximinez.
 
 Lamb keyed his mike. "Load up, were ridding the rest of the way."
 
@@ -375,7 +378,7 @@ an outline that he swore looked exactly like own weapon. His hands finally found
 feeling to properly grasp his weapon. Their was something familiar about this boy, but he could not place it. Something
 about the look of loss combined with the clear stubborn choice to fight. _Maybe?_
 
-"Get the fuck out of here you asshole!" a yell broke his focus.
+"Get the fuck out of here you assholes!" a yell broke his focus.
 
 He turned to see several angry, but worried looking workers waving wrenches. The lead one looked more angry, his face
 was beet red and his eyes were bloodshot.
@@ -424,117 +427,63 @@ O'Delt had to stifle a chuckle as he thought he heard mad clicking and scramblin
 up front tried every option they could see. To their credit it was a knob on the steering column, and everyone let out a
 quiet hurrah when Epsis thumped the ceiling in affirmation.
 
-"Hey O'Delt, you're bleeding." Zeke, who was sitting opposite pointed to his cuff.
+"Hey O'Delt, you're bleeding." Zeke, who was sitting opposite, pointed to his cuff.
 
-"Fifth squad, I'm headed north along a busy north-south road, going to cut at the mark and cross directly into rally 2.
-Suggest you follow. Acknowledge." O'Delt radioed.
+O'Delt casually shrugged his arm, trying to play it off.
 
-**Tick. Tick.**
+"Just a graze." He said.
 
-_Lovely._ Even after that they are somehow still behind me. _Must have gotten caught up in something too._ He followed
-the street, doing his best to keep his pace, but trying to play it casual to avoid drawing attention. He tucked his
-bullpup under one arm, and his jacket, knowing full well that while not illegal, he could not afford to get into it with
-security this far away. After a few minutes of casual jogging, he stopped at what he knew to be the correct point.
-Further back he saw fifth squad jogging up the pedestrian way. They made quite the pack, and were the furthest O'Delt
-had ever seen from inconspicuous. O'Delt turned back towards the street. Vehicles still rumbled past, but he knew he
-heard the ~~recognizable~~ **whip, crack** of a stray shot. He needed to get across, but no vehicle looked in any hurry
-to slow down. He stubbornly refused to go any further and risk missing the rally point, so he made a conscious choice.
-_Lets get loud._ He swung his gun out from under his arm, shouldered it, and pointed it in the direction of the
-immediate oncoming traffic. He made eye contact with the nearest driver and saw their expression go from mild discomfort
-to extreme worry. Instead of having the desired effect however, they actually slammed on the accelerator, and shot
-forward, passing O'Delt in a dusty haze. The next driver was further back, and O'Delt had a decision to make. Ultimately
-he choose to put his life on the line in the most ludicrous way any of them could possibly have imagined. _Can't believe
-I'm going to die this way._ O'Delt took a deep breath and stepped out onto the road. The Next driver down made direct
-eye contact with him the moment he did, and O'Delt reflexively raise his free hand in what he hopped was the universal
-gesture of 'stop'. He watched as terror strick the driver's face and they slammed the brake. He heard tires screech, and
-then more, and more, and more tires after that. The look of terror was quickly replaced with utter rage as the driver
-yapped at him from behind their windshield. He could see their mouth moving, but could not hear anything above the
-honking and rumbling of the still moving traffic in front of and next to him in the opposite lane. He waved his gun back
-and forth while taking another step further into traffic. More and more cars slowed to a halt on the busy roadway, and
-soon everything was drowned out in vehicle horns and yelling.
+"Here, tap that leak kid" Zeke fished a roll of gauze out from a pouch and handed it to him.
 
-Not a second later he got a tap on his shoulder. He half expected some security grunt, but to his relief it was Lamb. He
-was huffing, as was the rest of the team, from a sprint they had made to catch up to him and get across. While the car
-horns did not fade, the yelling from them did. He watched faces go back to abject terror at the sight of a full squad of
-heavily armed mercenaries, panting and sweating, interrupt traffic traffic with their motley assortment of weapons.
-Abruptly O'Delt saw an opening at the far end of the roadway, and he joined his team towards the road wall. It was only
-a chest high barrier but he stayed to lift up as many as he could. He found he only needed to help Espis. She was taller
-than him, and weighed more than him, but he put on a brave face and stood in a bent position so she could step off him.
-She was their heavy weapons specialist and carried the most gear, so he really hopped someone was at the top to help.
-She smirked at him, knowing full well that he had bitten off more than he could chew, but stubbornly refused to spit.
-She handed him her heavy weapon and put a foot on his thigh, just above his bent knee. She let out a grunt, and O'Delt
-was barely able to withstand her bulk. He thought he might black out, but a second later he felt her weight ease and
-knew someone must have hauled her up. He turned around and yelled, intending to heft the gun over the barrier to her,
-but instead she dropped down and reached a hand up over it. He awkwardly lifted it with both hands surprised, but at the
-same time not, by how heavy it was. She grasped it with one hand and pulled it away from him. He then lifted both hands
-up, and was immediately relieved to get a helping loft from Lamb and Ximinez, their comms guy. They hauled up up and
-over in one smooth motion, and he landed gracefully among his squad mates.
+O'Delt took it and quietly thanked him. He awkwardly fumbled for a a few minutes trying to get his arm out his sleeve,
+and then tie the gauze one handed. Nobody offered to help, but he would have been embarrassed if they had asked. This
+was one of those quiet moments that reminded him of the tiny differences between them all, and how sometimes they looked
+at him differently than each other. He could never tll if it was pity, remorse, or somber reminiscing. He finished up
+and tossed the rest to Zeke. Putting his jacket back on made him feel a bit better.
 
-Each one had a slightly out of breath look about them, but deep down they all shared the same knowledge that this was
-it. On the other side of the barrier, and with the horns stopped each could hear the cracks and bangs of staccato gun
-fire. It echoed off the dense buildings, in a dizzying pattern, but each member knew the real direction it was coming
-from.
+There were loud honks coming from outside as Ximinez and Lamb navigated. The jostling had decreased to a gentle swaying.
 
-"Sounds like the party's started without us." Lamb said with a grin. "Alright then, I want heavies on the ground floor,
-and support on top of buildings. O'Delt I want you to circle right, get to second and let them know we're here." Lamb
-slowly made eye contact with each squad member in turn. They all met his gaze with a fiery passion, intent on showing
-these corporate thugs -who had probably never fought any real battles in their lives, who was boss. "Let's em what the
-Lost can do!" Lamb yelled, and they all joined in a hearty roar.
+"Hey guys, switch to command comms." Someone half whispered, from the front.
 
-These grunts would learn today what it was like to fight a real battle. This was going to go poorly for them, and O'Delt
-could not help but feel a surge on confidence. He waited for the rest to take off down the narrow alleys, and followed
-Ximinez who had chosen to angle right, closer towards second squad. O'Delt was not going to engage, but he knew he
-needed to get a look at what he was dealing with before tracking down second and linking up with them.
+O'Delt paused, but the rest of them all did so immediately and he watched as their faces went sour. The mood had gone
+from cheery to dark in a heartbeat, and he was certain he could guess why. O'Delt twisted the knob back to the command
+channel.
 
-He chased after Ximinez, following him down winding streets and narrow alleys. The construction here was much more
-haphazard than the fabrication district they had just charged through. These were all several storied buildings, but
-with no planning or oversight into how structurally sound they were. Several times O'Delt passed a stack of buildings
-that looked like they were ready to collapse onto one another. The wildly rusted metal sheets and poorly welded beams
-brought to mind a maze puzzle for rats. He had seen vids of experiments they used to run on them, the purpose lost of it
-was lost on him. But unlike the rats he and Ximinez did not get lost. Nobody from the Lost ever did for that matter.
-O'Delt always found he knew were something was, and it had served him impressively time and time again. They were all
-gifted like that. In spite of their company name, none of them could ever actually be lost. Ahead of him, Ximinez
-rounded a corner, and he lost sight of him. O'Delt heard a volley of automatic fire echo from past the next building,
-and he stopped just short of the corner.
+"This is second-squad, say again! Rally two is hot! We're getting chewed up out here. No sign of i-squad."
 
-He peeked his head, hoping he had not jinxed anything. Out of the corner of his eye he saw an opening in the buildings.
-In the opening was another clearing containing a market square, just like the one he had seen earlier next to the fab
-yards, however the chaos in this market was much different. O'Delt immediately heard a staccato of heavy weapons fire,
-and the rhythmic blasting of a shotgun. He saw bullets chip holes in plastic, and spark off metal sheets and beams. The
-stalls were shattered, and under them he could see figures lying prone. In the limited daylight, he could not tell if
-they were innocent bystanders, or whatever remained of the infiltration team. Ahead of him, he saw Ximinez square up to
-a nearby wall and lean out to fire at some target outside O'Delt's view. He snaked up behind him, intending to get a
-better view of the scene, and try to locate the opposing force. Once he got close, Ximinez held out a hand and O'Delt
-sidled up next to him. He immediately heard a roar of gunfire open up from a few shacks up. The unmistakable noise of
-heavy machine gun fire filled him with hope. Ximinez backed off, and waved O'Delt forward giving him a chance to get a
-look at the chaos. He Gave O'Det a warning gesture, and O'Delt knew not to linger. It was a massacre.
+That was Betcheck's gruff voice, but stained with worry and anger. O'Delt could not help but worry that they were too
+late. Even their new and shiny transport might not be enough to make up for them getting there so late.
 
-The square itself was tightly packed in on all sides by shacks of varying heights. In the wanning light he saw lights
-had been turned on in some shacks, but he hoped those had just been abandoned in haste. The bright flash of machine gun
-fire illuminated the square in harsh spastic flare, but he now had a better view of the stalls in the center. The vast
-majority had been riddled with bullets, and he could see a portion of them had been blown to smithereens. In the rubble
-he saw the infiltration team. There were several prone figures leaking dark fluid, and he saw their medic cowering
-nearby trying to patch as best they could. He saw two figures nearby, taking cover now that the machine gun fire had
-provided some much needed suppression. In the dark O'Delt could not make out who was left standing, but the original
-squad had been made up of ten. That meant that about half of them were left. His blood surged with anger and he felt
-heat rise up into his face. But that was not the end of it. Surrounding the squad were dozens of bodies, innocent
-bystanders, lying prone in pools of blood. Now that ne saw them he could hear screaming over the raucous gunfire coming
-from somewhere in the mess. It was more than a massacre, it was an inhumane slaughter. These corporate goons were
-knowingly sacrificing their own civilians to get at them.
+"Hey Lamb, you hearing this?" Someone piped into the cabin.
 
-O'Delt scanned the far side, trying to pick out any more psychos he could take a shot at, and revenge his fallen
-brothers, as well as the sacrificed civilians. In the darkness he saw pitch black shapes looming in the slums. He could
-not tell if they were innocents, or adversaries, until one of them on a roof made a movement and he saw bright flashes
-illuminate them against the rapidly darkening sky. Their shots went wide, and the assailant was immediately peppered
-with heavy fire. On the ground O'Delt saw figures in black raising barricades at the edges. These barricades had angled
-lines, and did not resemble the hodgepodge assembly the surrounding buildings were comprized of. These barricades looked
-specially fabricated out of some sort of non-reflective, slotted material. O'Delt could see that some were interlaced
-into one another, while others were simply adhered to walls via unknown means. The dark figures behind them were heavily
-armored, and before O'Delt knew it they had erected a significant bulkhead of what O'Delt could only assume was a their
-beachhead. Another flash from a roof, and this time O'Delt ducked back. He heard a booming reply, and recognized the
-sound as a shotgun.
+"Yeah I'm hearing it." He paused for a second. "Alright, listen up. fifth squad, buckle up, were gonna go loud. Ximinez,
+were gonna go through the wall at the next gap in the buildings!"
 
-He was shocked. How could this have happened? How could they have been sidelined like this? He knew the squad had been
-handpicked to run this op, and each member had been either an up-coming, or practiced veteran. This seemed like such a
-clusterfuck when he compared them against their previous operations. Something must have gone terribly wrong for it to
-end up like this. Ximinez gave him a firm tap, and O'Delt swapped positions once more.
+"Hah, you got it boss."
+
+"Everyone else, get ready. Epsis, I want you on the roof hatch as soon as we get there. We're gonna ram this thing so
+far up their asses they're gonna be spitting metal. Everyone else break out and cause as much problems as you can." Lamb
+paused, clearly doubting himself for a moment.
+
+"FIFTH SQUAD!" Someone in the back shouted.
+
+"FIFTH SQUAD!" They all echoed in response.
+
+This was it. O'Delt checked his gun, and wiggled his harness back and forth to make sure it was snug. Everyone around
+did the same, and he silently wondered how this would work out. A second later it was too late to ask.
+
+"That's it. HOLD ON!" Ximinez yelled from the front, and the vehicle lurched forwards. O'Delt grabbed the hand rail on
+the celling with both his hands and did just that. A split second later there was an earth shattering crunch smash as
+their two-ton transport smashed through a concrete wall. They all were shook forwards, and then bounced upwards in a
+savage one two punch. Someone near the front was tossed into the bulkhead with a dull thump, followed by a stream of
+curses from the cabin. Someone quickly dragged the stunned man onto the bench, and did their best to wedge him into the
+corner for support.
+
+"Everyone ok back there?!" Lamb hoarsely shouted through the slot.
+
+"We're good!" Epsis grunt back.
+
+O'Delt looked across at Zeke who was grinning at him. He found himself grinning back. Underneath them, O'Delt felt all
+six tires crunch and groan over rubble and metal. He heard the sides grind groan as metal slid against metal. Behind
+them, thought the slits, O'Delt saw the cars had disappeared in a plum of smoke and dust. Some had headlights on, but
+they quickly disappeared as the vehicle was engulfed on all sides the by the ramshackle construction of a slum block.
