@@ -427,19 +427,24 @@ O'Delt had to stifle a chuckle as he thought he heard mad clicking and scramblin
 up front tried every option they could see. To their credit it was a knob on the steering column, and everyone let out a
 quiet hurrah when Epsis thumped the ceiling in affirmation.
 
-"Hey O'Delt, you're bleeding." Zeke, who was sitting opposite, pointed to his cuff.
+"Hey O'Delt, you're bleeding." Zeke, who was sitting opposite, pointed to his cuff. Zeke was about ten years older than
+him, but he did not look it. He had the rare gift of youth in an otherwise hard life that seemed to take a lot from
+everyone else. Besides Epi, who O'Delt did not get along with, Zeke was one of the closest in age to O'Delt. Maybe Zeke
+thought that gave them some common ground compared to the rest of the company, but O'Delt could not help feeling
+isolated from him all the same.
 
 O'Delt casually shrugged his arm, trying to play it off.
 
 "Just a graze." He said.
 
-"Here, tap that leak kid" Zeke fished a roll of gauze out from a pouch and handed it to him.
+"Here, tap that leak kid" Zeke said while fishing a roll of gauze out from a pouch and handing it to him.
 
 O'Delt took it and quietly thanked him. He awkwardly fumbled for a a few minutes trying to get his arm out his sleeve,
 and then tie the gauze one handed. Nobody offered to help, but he would have been embarrassed if they had asked. This
-was one of those quiet moments that reminded him of the tiny differences between them all, and how sometimes they looked
-at him differently than each other. He could never tll if it was pity, remorse, or somber reminiscing. He finished up
-and tossed the rest to Zeke. Putting his jacket back on made him feel a bit better.
+was one of those quiet moments that reminded him of the tiny differences between him and the rest that sometimes created
+huge rifts. How sometimes they looked at him differently than they did each other. He could never tell if it was pity,
+remorse, or somber reminiscing but it left him feeling anxious regardless. He finished up and tossed the rest back to
+Zeke. Putting his jacket back on made him feel a bit better, and the squad got back to checking their own gear.
 
 There were loud honks coming from outside as Ximinez and Lamb navigated. The jostling had decreased to a gentle swaying.
 
@@ -451,7 +456,7 @@ channel.
 
 "This is second-squad, say again! Rally two is hot! We're getting chewed up out here. No sign of i-squad."
 
-That was Betcheck's gruff voice, but stained with worry and anger. O'Delt could not help but worry that they were too
+That was Betchek's gruff voice, but stained with worry and anger. O'Delt could not help but worry that they were too
 late. Even their new and shiny transport might not be enough to make up for them getting there so late.
 
 "Hey Lamb, you hearing this?" Someone piped into the cabin.
@@ -473,17 +478,46 @@ This was it. O'Delt checked his gun, and wiggled his harness back and forth to m
 did the same, and he silently wondered how this would work out. A second later it was too late to ask.
 
 "That's it. HOLD ON!" Ximinez yelled from the front, and the vehicle lurched forwards. O'Delt grabbed the hand rail on
-the celling with both his hands and did just that. A split second later there was an earth shattering crunch smash as
-their two-ton transport smashed through a concrete wall. They all were shook forwards, and then bounced upwards in a
-savage one two punch. Someone near the front was tossed into the bulkhead with a dull thump, followed by a stream of
-curses from the cabin. Someone quickly dragged the stunned man onto the bench, and did their best to wedge him into the
+the celling with both hands and did just that. A split second later there was an earth shattering crunch-smash as their
+two-ton transport smashed through a concrete wall. They all were thrown forwards, and then tossed upwards in a savage
+one two punch. Someone near the front was tossed into the bulkhead with a dull thump, followed by a stream of curses
+from the cabin. Someone else quickly dragged the stunned man onto the bench, and did their best to wedge him into the
 corner for support.
 
-"Everyone ok back there?!" Lamb hoarsely shouted through the slot.
+"Everyone OK back there?!" Lamb hoarsely shouted through the slot.
 
 "We're good!" Epsis grunt back.
 
+She had held on through sheer grit while crouched in the central space. He saw her knuckles were white from the strain.
 O'Delt looked across at Zeke who was grinning at him. He found himself grinning back. Underneath them, O'Delt felt all
-six tires crunch and groan over rubble and metal. He heard the sides grind groan as metal slid against metal. Behind
-them, thought the slits, O'Delt saw the cars had disappeared in a plum of smoke and dust. Some had headlights on, but
-they quickly disappeared as the vehicle was engulfed on all sides the by the ramshackle construction of a slum block.
+six tires crunch and groan over rubble and metal. He heard the sides shriek and groan as metal slid against metal.
+Behind them, thought the door slits, O'Delt saw the cars had disappeared in a plume of smoke and dust. Some had
+headlights on, but they quickly disappeared as the vehicle was engulfed on all sides the by the ramshackle construction
+of a slum block.
+
+O'Delt say concrete walls and buildings transition to haphazard metal siding, and plastic sheets. It was all rust and
+prayers in here.
+
+"Fuck!" Yelled Ximinez and Lamb in unison as there was another crunch followed by shrill metallic grating.
+
+This time is was much better as the vehicle took the brunt of it and only slid them all forwards a fraction. A split
+second later he thought he heard a muffled screaming pass them. O'Delt checked the rear slits, but could not see
+anything. Out the front cabin slot O'Delt could almost make out the shapes of buildings in full. Calling them buildings
+was a stretch as they were really just levels of metal, concrete or brick shelters slapped on top of each other in
+anywheres from two to four story setups. He saw cables strung across the road, crisscrossing wildly, and a myriad
+occasionally downspouts spewing foul liquid onto the streets and gutters. Lights were on in many of the buildings, but
+he saw figures scrambling on the road ahead, running to escape and warn family or neighbors that trouble was on it's
+way.
+
+Epsis sneaked her head out to top hatch and O'Delt realized he could hear pops and far off bangs from the fighting. He
+tensed himself in preparation. Epsis, slowly lifted her machine gun muzzle just past the lip of the hatch, and crouched
+in a waiting stance. Inside the compartment, the mood changed from warm and confident to cold and worried. Each and
+every one of them was prepared and ready. As if on cue, Lamb piped up from the cabin.
+
+"Second squad, fifth squad inbound in a stolen transport, gatecrash from the south!"
+
+Then to them. "Fifth squad this is it! Floor it Ximinez!"
+
+The transport lurched forwards and O'Delt felt his heart race beyond what he had ever experienced before. His hearing
+tunneled, focusing only on the whirring transmission bellow them. He gritted his teeth, took a breath, and waited. He
+was not prepared enough.
