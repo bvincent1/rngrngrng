@@ -403,7 +403,7 @@ aware that Ximinez was driving like a madman and fumbled with the latch. Eventua
 her considerable bulk, threw it open with a loud thunk. Fresh air swirled down into the compartment and O'Delt felt
 himself relax slightly.
 
-"We loose something?" Lamb asked worriedly over the comms.
+"We loose something?" Lamb yelled worriedly over the comms.
 
 "Just getting some air." Epsis yelled back at him through the cab slot. She was half crouched, half standing in the
 opening, head barely pocking out, watching their progress and taking in the rare chance to enjoy a view.
@@ -421,17 +421,17 @@ more to consider.
 yelled past them into the cabin.
 
 "Great idea." Lamb voiced back through the slot, then in a slightly muffled and undirected tone "Fuck me, which button
-is it."
+is it?"
 
 O'Delt had to stifle a chuckle as he thought he heard mad clicking and scrambling of switched and toggles while the two
 up front tried every option they could see. To their credit it was a knob on the steering column, and everyone let out a
-quiet hurrah when Epsis thumped the ceiling in affirmation.
+quiet hurrah when Epsis thumped the ceiling in confirmation.
 
 "Hey O'Delt, you're bleeding." Zeke, who was sitting opposite, pointed to his cuff. Zeke was about ten years older than
 him, but he did not look it. He had the rare gift of youth in an otherwise hard life that seemed to take a lot from
-everyone else. Besides Epi, who O'Delt did not get along with, Zeke was one of the closest in age to O'Delt. Maybe Zeke
-thought that gave them some common ground compared to the rest of the company, but O'Delt could not help feeling
-isolated from him all the same.
+everyone else. Besides Epi, who O'Delt did not get along with, Zeke was one of the closest in age to him. Maybe Zeke
+thought that gave them some common ground compared to the rest of the squad, but he could not help feeling distanced
+from him all the same.
 
 O'Delt casually shrugged his arm, trying to play it off.
 
@@ -448,7 +448,7 @@ Zeke. Putting his jacket back on made him feel a bit better, and the squad got b
 
 There were loud honks coming from outside as Ximinez and Lamb navigated. The jostling had decreased to a gentle swaying.
 
-"Hey guys, switch to command comms." Someone half whispered, from the front.
+"Hey guys, switch to command comms." Someone from the front half whispered.
 
 O'Delt paused, but the rest of them all did so immediately and he watched as their faces went sour. The mood had gone
 from cheery to dark in a heartbeat, and he was certain he could guess why. O'Delt twisted the knob back to the command
@@ -467,7 +467,7 @@ were gonna go through the wall at the next gap in the buildings!"
 "Hah, you got it boss."
 
 "Everyone else, get ready. Epsis, I want you on the roof hatch as soon as we get there. We're gonna ram this thing so
-far up their asses they're gonna be spitting metal. Everyone else break out and cause as much problems as you can." Lamb
+far up their asses they're gonna be tasting bumper. Everyone else break out and cause as much problems as you can." Lamb
 paused, clearly doubting himself for a moment.
 
 "FIFTH SQUAD!" Someone in the back shouted.
@@ -521,3 +521,45 @@ Then to them. "Fifth squad this is it! Floor it Ximinez!"
 The transport lurched forwards and O'Delt felt his heart race beyond what he had ever experienced before. His hearing
 tunneled, focusing only on the whirring transmission bellow them. He gritted his teeth, took a breath, and waited. He
 was not prepared enough.
+
+While O'Delt could not see it for himself, they crashed through an abandoned collapsed shack, and exploded onto the
+scene of rally two. It was another market square, occupying the only empty space between the tightly packed steel slum
+yard. There were stalls held up in semi permanent structures of metal sheeting, plastic prefab, tarps, and cabling.
+There were collapsed tarps scattered throughout the square, which has really just an misshaped pentagon, and bullets
+were quickly demolishing the remaining ~~structures~~. O'Delt felt a sharp pull as the transport swerved to the left. He
+felt the tires skid on the mud and concrete as the transmission let out a groan of disapproval.
+
+"Ram that one!" Lamb shouted.
+
+O'Delt heard it, and braced just like everyone else in the compartment. They all tensed for what felt like an eternity
+to him before the inevitable consequence of newtonian physics reared it's ugly head at them once again. A split second
+later, there was a crash-crunch, and each squad member slid sideways. The transport glanced off something, slid
+sideways, then lurched upwards slightly before slamming down again. There was a loud yell from the front cabin, and
+O'Delt suddenly noticed his head had snapped against the interior wall. He heard a faint ringing, before he noticed Zeke
+grab him by the should and reach down to the door handle next to them. O'Delt felt a surge of adrenalin as he realized
+they had been ordered to disembark and raise hell. Worried he had held the squad up, he reached down and shoved the
+lever locking them in, then pushed on the heavy door with his shoulder. It swung open, but not as smoothly as before and
+he breathed again as fresh night air filled the compartment. Zeke spoke and motioned at him, and he realized his hearing
+had not come back all the way. Zeke's words were muffled and still difficult to parse, but he seemed frustrated and
+distracted.
+
+**Zippp-splat**
+
+O'Delt looked in horror. Where Zeke's head had been, there was now a gory mess of skull and crimson brain matter. Time
+stopped. Blood had sprayed all over the man sitting next to him, and had covered the interior wall Zeke had been siting
+against. The entire top half of his head had simply ceased to exist, and had been distributed across his neighbor and
+the metal adjacent to it. His mouth hung open, and O'Delt thought he heard him speak. It was entirely silent now, except
+for Zeke's voice, hoarse and quiet.
+
+"You are not enough."
+
+The sound was not quite whispered, but escaped from the man's jaws. An echo from a soul incapable of delivering
+anything. Time unstopped, and someone shoved him, and Zeke's lifeless carcass out into the cold night air. All at once
+O'Delt could hear again, and he knew he had made a mistake. Bullets zipped past them as he leapt out of the way and
+raised his rifle. Someone shoved him from behind, and he almost fell flat into the mud but for a deft roll out of the
+way. Bodies streamed past him and he noticed the roar of machine gun fire from the roof. Epsis was roaring as much as
+her gun, and they both sprayed death into a transport that was wedged into their bumper. She was screaming obscenities
+at it, and trying to hose down the troopers doing the same as them on the other side of their vehicular accident. O'Delt
+saw tracer round ricochet off the hatch cover, and spin off into the dark. Someone shoved past him again, and he saw as
+the rest of his squad charged the rear hatch of the opposing transport, intent on eliminating the troopers before they
+could get out. It was a mad dash to shoot fish in a barrel with each squad desperate to avoid being the fish.
