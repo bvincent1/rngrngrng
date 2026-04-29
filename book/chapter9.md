@@ -562,4 +562,36 @@ her gun, and they both sprayed death into a transport that was wedged into their
 at it, and trying to hose down the troopers doing the same as them on the other side of their vehicular accident. O'Delt
 saw tracer round ricochet off the hatch cover, and spin off into the dark. Someone shoved past him again, and he saw as
 the rest of his squad charged the rear hatch of the opposing transport, intent on eliminating the troopers before they
-could get out. It was a mad dash to shoot fish in a barrel with each squad desperate to avoid being the fish.
+could get out. It was a mad dash to shoot fish in a barrel with everyone desperate to avoid being the fish.
+
+O'Delt heard a loud **crump-bang** from the front of the transport, followed by a dull screaming. He stumbled towards
+the cab, hopping against hope that it was not what he thought it was. Groped the side of the transport, both for support
+at his suddenly wak legs, and for cover from the incoming that seemed to come from all direction. Rounds pinged off the
+hardened plate and made him flinch, but he persevered. At the cabin he saw smoke pouring out from the engine
+compartment, and he saw the cabin door was slightly ajar. He steadied himself, and hurried the last few steps towards
+it, smoke clinging to him and stinging his eyes. He snaked into the door gap and tried to get a look at the damage that
+he knew would be terrible. It was utter carnage inside the cab. A grenade had gone off point blank on the hood and
+shattered the protective glass inwards. Ximinez, seated on the far side as the driver, was shredded to a pulp. He was
+barely recognizable from the waist up. Tattered and burnt cloth embedded itself into his mangled torso where blood
+slowly leaked out with a slow drip. O'Delt said a silent prayer, unsure to whom he was offering psalms to, and examined
+Lamb. Glass shards decorated him like a coat of spikes, glinting in the dimmed lights and smoke. The shards covered his
+whole body and his head. His eyes leaked clear fluid that quickly melded with the blood on his face. O'Delt was sickened
+to behold the horror of it.
+
+"Ughhhhhhh" Lamb gasped, and his body jerked in the seat.
+
+O'Delt's heart leaped in his chest and a terrible fear overtook him. This was a fate worse than death. Agony. O'Delt
+felt his skin grow cold, despite the heat and smoke, and his veins turned to ice.
+
+"Don't worry sir, I've got you." He said weakly. He hauled himself level with Lamb, and reached around to haul him out
+of the burning wreck.
+
+"Sssstop" Lamb rasped, the glass twitching with every word. "Leave me. Go get i-team, link up with second squad."
+
+O'Delt could barely stop himself from screaming and just froze. He could barely bring himself to breath if only that
+would upset the balance and push Lamb off the edge into death. He stood there another moment, unsure how to proceed.
+
+"DO IT!! Get out now kid. It's not enough!" Lamb screamed and then retched painfully every spasm causing fresh agony in
+his already mangled frame. O'Delt let go, and stepped back. The smoke still billowed, but it did not seem to bother him
+as much anymore. He forced himself to look away. He forced himself to ignore the stray rounds and muffled explosions. He
+ran for the stalls in the center of the square, and did not look back.
