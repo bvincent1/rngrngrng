@@ -586,12 +586,51 @@ felt his skin grow cold, despite the heat and smoke, and his veins turned to ice
 "Don't worry sir, I've got you." He said weakly. He hauled himself level with Lamb, and reached around to haul him out
 of the burning wreck.
 
-"Sssstop" Lamb rasped, the glass twitching with every word. "Leave me. Go get i-team, link up with second squad."
+"Sssstop" Lamb rasped, the glass cranking and chinking with every word. "Leave me. Go get i-team, link up with second
+squad."
 
 O'Delt could barely stop himself from screaming and just froze. He could barely bring himself to breath if only that
 would upset the balance and push Lamb off the edge into death. He stood there another moment, unsure how to proceed.
 
-"DO IT!! Get out now kid. It's not enough!" Lamb screamed and then retched painfully every spasm causing fresh agony in
-his already mangled frame. O'Delt let go, and stepped back. The smoke still billowed, but it did not seem to bother him
-as much anymore. He forced himself to look away. He forced himself to ignore the stray rounds and muffled explosions. He
-ran for the stalls in the center of the square, and did not look back.
+"DO IT!! Get out now kid!" Lamb screamed and then retched painfully, every spasm causing fresh agony to his terribly
+mangled frame. O'Delt let go, and stepped back. The smoke still billowed, but it did not seem to bother him as much
+anymore. He forced himself to look away. He forced himself to ignore the stray rounds and muffled explosions. He ran for
+the stalls in the center of the square, and did not look back. Behind him he hear screams. Yells. Full automatic
+gunfire. And on the breeze he heard someone's voice.
+
+"You are not enough." It whispered hoarsely.
+
+He dove into a pile of stacked containers, full of parts and chinking metals. He raised his gun, and scanned behind him,
+fully convinced someone had been there. Not someone from his squad, someone else. But it was empty. Just smoke and empty
+noise. There was a loud crash and then the rhythmic boom of heavy gunfire deeper in the maze. He faced it, and strode
+deeper into the plastic jungle. Tattered remains of tarps swung lazily, then twitched from random impacts. He kept low,
+dodging between whatever cover there was. He heard whimpering from another row over, and quietly ducked under a bench
+and slid between a thin canvas sheet separating two stalls back to back. He saw them on the ground, in a bloody pool of
+mangled bodies. A grenade had gone off at some point, and someone had tried to take the brunt of it, but failed. The
+secondary victim lay whimpering on their back, their entire side wrenched open and darkened with mud and caked blood.
+O'Delt did not recognize them, and he knew he could not imagine their insufferable loss. He carefully stepped closer,
+unsure what he could do, but willing to try at least. He locked eyes with them. Ice blue eyes against the blood and dirt
+that covered their face in a black smear. He tried to look away, but the eyes drew him closer. They were impossibly
+bright. Almost luminescent. He found himself crouched next to them, unsure what to do. He saw their mouth move slightly,
+dried bits of mud flaking off their lips. He tried to lean in, to better here them.
+
+"You are not enough." It whispered, voice barely audible against the wanton destruction in the background.
+
+O'Delt felt his skin crawl. He backed away slightly, clamping his gun tightly in his suddenly sore hands.
+
+"What do you mean?" He asked, not sure what else to say.
+
+"You will perish! You must succeed this place!" The body shuddered and screamed.
+
+They suddenly went stiff end to end, and O'Delt watched in horror as they let out a low hollow rasp, then went loose
+again. There was no more breathing. No more light in the eyes, and he felt a prolonged sense of inhuman dread creep into
+his already shattered mind. O'Delt let out a choked breath, and dove into a plastic bench cover on his right as he heard
+a dull thump somewhere to his left. He lay flat, headless of his weapon, and covered his head with his hands. Seconds
+passed, and he loosened slightly, only to get blasted by the delayed explosion. He felt hot shards graze his back, and
+then steaming mud spatter against him. He quickly got up, and made a run for the far side. In the narrow walkways, and
+twisting paths he found himself abandoning all caution. He felt the overwhelming desire to get out. This was well beyond
+him and he knew it. In his mad dash, he collided headlong with a corporate trooper in full heavy plate. They both
+toppled over in a heap, landing hard in the mud and dust.
+
+O'Delt felt the adrenalin hit his already strained system, and he rolled over onto his back, trying to fumble for his
+gun hanging tightly on its harness around his neck and shoulder.
