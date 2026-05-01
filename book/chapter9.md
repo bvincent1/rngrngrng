@@ -603,16 +603,18 @@ gunfire. And on the breeze he heard someone's voice.
 He dove into a pile of stacked containers, full of parts and chinking metals. He raised his gun, and scanned behind him,
 fully convinced someone had been there. Not someone from his squad, someone else. But it was empty. Just smoke and empty
 noise. There was a loud crash and then the rhythmic boom of heavy gunfire deeper in the maze. He faced it, and strode
-deeper into the plastic jungle. Tattered remains of tarps swung lazily, then twitched from random impacts. He kept low,
-dodging between whatever cover there was. He heard whimpering from another row over, and quietly ducked under a bench
-and slid between a thin canvas sheet separating two stalls back to back. He saw them on the ground, in a bloody pool of
-mangled bodies. A grenade had gone off at some point, and someone had tried to take the brunt of it, but failed. The
-secondary victim lay whimpering on their back, their entire side wrenched open and darkened with mud and caked blood.
-O'Delt did not recognize them, and he knew he could not imagine their insufferable loss. He carefully stepped closer,
-unsure what he could do, but willing to try at least. He locked eyes with them. Ice blue eyes against the blood and dirt
-that covered their face in a black smear. He tried to look away, but the eyes drew him closer. They were impossibly
-bright. Almost luminescent. He found himself crouched next to them, unsure what to do. He saw their mouth move slightly,
-dried bits of mud flaking off their lips. He tried to lean in, to better here them.
+deeper into the plastic jungle. Tattered remains of tarps swung lazily, then twitched from random impacts. Low hanging
+cables, knocked loose from the combat swung lazily. Small fires, and sparking conduits lit the dark and narrow maze
+corridors. None of it was straight, and the tangled mess kept him on his toes. He kept low, transitioning silently
+between whatever cover there was. He heard whimpering from another row over, and quietly ducked under a bench and slid
+between a thin canvas sheet separating two stalls back to back. He saw them on the ground, in a bloody pool of mangled
+bodies. A grenade had gone off at some point, and someone had tried to take the brunt of it, but failed. The secondary
+victim lay whimpering on their back, their entire side wrenched open and darkened with mud and caked blood. O'Delt did
+not recognize them, and he knew he could not imagine their insufferable pain. He carefully stepped closer, unsure what
+he could do, but willing to try at least. He locked eyes with them. Ice blue eyes against the blood and dirt that
+covered their face in a black smear. He tried to look away, but the eyes drew him closer. They were impossibly bright.
+Almost luminescent. He found himself crouched next to them, unsure what to do. He saw their mouth move slightly, dried
+bits of mud flaking off their lips. He tried to lean in, to better here them.
 
 "You are not enough." It whispered, voice barely audible against the wanton destruction in the background.
 
@@ -632,5 +634,45 @@ twisting paths he found himself abandoning all caution. He felt the overwhelming
 him and he knew it. In his mad dash, he collided headlong with a corporate trooper in full heavy plate. They both
 toppled over in a heap, landing hard in the mud and dust.
 
-O'Delt felt the adrenalin hit his already strained system, and he rolled over onto his back, trying to fumble for his
-gun hanging tightly on its harness around his neck and shoulder.
+O'Delt felt the adrenalin hit his already jittery system, and he rolled over onto his back, trying to fumble for his gun
+hanging tightly on its harness around his neck and shoulder. The trooper let out an angry grunt from underneath their
+dark helmet and, forgoing their own gun handling limply at their side, lunged at him. O'Delt felt their heavy frame
+collide with him and knock the wind out of his lungs. All he could hear was his racing heart pounding faster than he
+could think. He stopped fumbling for his gun and tried to counter the grab. The trooper was much heavier than him, but
+he chalked that up to the heavy armor. That same armor clearly made it difficult to manuever, hence why they had simply
+opted to grapple with him. He felt the trooper land several heavy blows on his sides, and O'Delt had to wrestle to pin
+their arms. Trying to punch back would be useless, only a kill between the plates would guaranty him survival. Pinning
+their arms proved difficult, and O'Delt struggled underneath them, the heavy plate doing most of the work to pin him in
+place underneath. The trooper and O'Delt struggled back for forth for what felt like forever, the plate both a boon and
+a bane for them both in equal measure. Eventually he managed to slit out from underneath them, and gain a position on
+top. Now the trooper was trying to restrain him and pin his arms. He fought with every ounce of strength he had left,
+pulling and struggling with his arms and legs to get away. He struggled one leg up and with that extra leverage, he
+kicked them at the hip and pushed off. The trooper gauged deep scrapes along his arms as he broke free of their grip.
+Free and in a sitting position, he scooted away while fumbling with him gun still tightly tied to his chest. In one
+smooth motion, O'Delt tilted the barrel up with one hand and grasped the grip and trigger with the other. His thumb
+flicked off the safety right as the trooper righted themselves into a sitting position. O'Delt pulled the trigger and a
+continues flash loosed at point blank all but blinded him to the extent of the damage. He heard the roar of his gun
+combine with the dull thumps of metal on ceramic. Thought the flashes he watched as the trooper took the brunt of the
+rounds in his chest, and O'Delt leaned back to give himself a higher angle, hoping for a headshot. He fell backwards,
+gun rising with him and uselessly sprayed the last of his clip into the dark night sky. His weapon spent, he lay their
+panting heavily, unable to get up to check on the trooper. _Fucking kill me then._ He sucked in a shallow breath and
+lazily rolled onto his side and curled up so he could see the extent of his desperate gamble.
+
+The trooper lay in a crumpled mess at his feet. Their black armor chest piece was riddled with scratches, dents, and
+oozing holes. O'Delt struggled upright and saw the damage had not been limited to the chest. On their helmet he saw deep
+gashes and dark fluid leaking out the back. To his horror their came shallow, but ragged gasps from underneath the
+visor. He sat their, frozen stiff with fear and remorse. The fight had been to the death, but it wasn't over yet. He
+knew they must have been in terrible pain, and the only right thing to do was end it. With all the death he had seen
+today, somehow this was the worst. Not an hour ago he had gunned down a transport of these same soldiers. In return they
+had burnt his squad leader, and who knows what happened to the rest. There was that body in the stalls, dead next to
+someone so mangled he could not even tell who's side they had belonged to, if any. He had fought with every ounce of his
+strength to kill them not moments before, and he had won. But it had not been this solder who had done all that to him.
+It was not them who had caused all this. Not on their own. He had done so much to these soldiers, and they would do the
+same to him. It was the eternal struggle. Not good. Not evil. Just survival. It was a hard life they lived, but nobody
+knew any other way. It was all they had left.
+
+O'Delt stood up on shaky legs, and loosed his gun into his hands. He lazily ejected the spent mag onto the wet mud, and
+fumbled to slot a fresh one in. He took one careful step towards the bleeding trooper, and stuck eased the muzzle under
+their helmeted chin. He remembered, and chambered a round into the barrel. It felt like someone else was in control of
+him. He knew what to do, but the actions seemed to be originating from someone else. Like a dream. He felt the trigger
+on his finger, heavier than usual.
