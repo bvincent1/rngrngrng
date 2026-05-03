@@ -25,6 +25,7 @@ mean the difference between survival and total destruction.
 6. [push and pull](./book/chapter6.md)
 7. [Dreamweaver](./book/chapter7.md)
 8. [misalignment of priorities](./book/chapter8.md)
+9. [it's not enough](./book/chapter9.md)
 
 ## Formatting
 
