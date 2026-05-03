@@ -674,5 +674,58 @@ knew any other way. It was all they had left.
 O'Delt stood up on shaky legs, and loosed his gun into his hands. He lazily ejected the spent mag onto the wet mud, and
 fumbled to slot a fresh one in. He took one careful step towards the bleeding trooper, and stuck eased the muzzle under
 their helmeted chin. He remembered, and chambered a round into the barrel. It felt like someone else was in control of
-him. He knew what to do, but the actions seemed to be originating from someone else. Like a dream. He felt the trigger
-on his finger, heavier than usual.
+him. He knew what he was doing, but the actions seemed to be originating from someone else. Like a dream. He felt the
+trigger on his finger, heavier than usual. He felt the gun in his hands, heavy and textured. He squeezed.
+
+**Bang**
+
+It was not loud, but it had a wet crunch. The rasping stopped, but the blood continued to seep into the mud, and stain
+the concrete. He heard a rustling, and swung around wildly his gun muzzle raised. He saw a figure standing there, in the
+midst of some cabling that had collapsed. The light from a fire was illuminating them but all O'Delt could see was their
+dark outline. And their eyes. Piercing eyes. Faint flickers of light reflected in those eyes, and their stare therein.
+O'Delt felt a recognition in them. It was the boy again. This time he knew. The haggard figure, all dressed in black,
+holding a rifle. He knew. He too had had that same face once. Not so long ago. He had thought himself older at the time,
+but he had been young. The look. The black cloak. The gun. They had all been his not so long ago. He felt his brain
+start to go fuzzy, his limbs were going slack. His gun no longer pointed at the figure, but at the ground. he still
+standing above the dead trooper, and he could sense the blood seeping around him, but he could not move this time. His
+blood ran cold, and he felt the greatest fear he had ever known. Not of death, but of life. Life so bastardized from
+what it should be that by all accounts it should not exist. He could not look away. The boy's mouth opened, and this
+time he heard a voice.
+
+"You, Arthur O'Delt, are not enough." The boy spoke.
+
+His words rang low, and raspy, but paradoxically clear in O'Delt's mind. The boy continued.
+
+"You have failed your task, given by right and by blood. You and your ancestors have failed. Your meager accomplishments
+have amounted to nothing. All of it will be undone. All of it will perish in the coming storm. You must understand this.
+Nothing you do will change it. You were pathfinders, meant to lead them. Lead them!" The boy shouted.
+
+O'Delt felt himself fall to his knees. His body had fully given up by now. Given in to whatever this was.
+
+"Instead you have squandered your gifts. Your capacities wasted on meager goals and wasteful."
+
+**Bang**
+
+The boy's head cocked sideways, and O'Delt saw brain matter erupt out the side of his head. A second later the body
+collapsed. O'Delt has in shock. Kneeling in blood, his grip on reality, and his weapon hanging on by a thread. He
+watched in horror as another figure stepped out from the shadows. This one was much taller, and even in the now pitch
+black, O'Delt recognized him immediately. Alphason. The greatest man he had ever known. He walked towards him, gun held
+tightly, but not pointed at him. He was walking straight towards him. O'Delt reached up a hand, expecting him to haul
+him up and give him some epic speech. Any moment the rest of the squad would appear and together they would turn this
+around. O'Delt felt relief well up inside him like a mountain spring. His heart swelled with pride and he actually had
+to fight back tears. He refused to cry in front of his hero. Alphason opened his mouth to speak, and his voice made
+O'Delt quake.
+
+"You must evolve! You cannot hope to survive!" Alphason's voice echoed, like he was deep down a well.
+
+O'Delt felt his vision start to tunnel. This had been too much. His heart. His body. His very will could not take this
+anymore.
+
+"You must evolve. Through us you will become greater than you ever could. We will evolve you." Despite his quickly
+narrowing vision, O'Delt saw he was surrounded by copies of Alphason. All of them were speaking in unison, their voices
+overlapping in a torrent. He felt himself begin to pitch forwards into the blood soaked dirt.
+
+"We will survive this. We will survive everything. And through us, you will to. That is our goal, that is why we will
+win. We survive. We evolve. We are dreamweaver."
+
+O'Delt felt his face collide with the mud, the blood, and the end. Unconsciousness took him
