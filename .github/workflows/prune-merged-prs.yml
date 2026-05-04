@@ -1,0 +1,26 @@
+name: Prune Merged PRs
+
+on:
+  push:
+    branches:
+      - "main"
+
+jobs:
+  prune:
+    runs-on: ubuntu-latest
+
+    # Prevent action from running on commits made by the bot itself
+    if: github.actor != 'github-actions[bot]'
+
+    steps:
+      - name: ⬇️ Checkout Repository
+        uses: actions/checkout@v4
+        with:
+          fetch-depth: 0
+
+      - name: 🧹 Delete Merged Branches
+        uses: dawidd6/action-delete-branch@v3
+        with:
+          github_token: ${{ github.token }}
+          # Delete branches that have been merged into main
+          branches: "*"
