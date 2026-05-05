@@ -412,7 +412,7 @@ Del felt whoever was holding him lean close, followed by a searing pain in hs ne
 from screaming. Whatever was holding him had just taken a bite out of his neck. He felt a warm trickle of blood run down
 from the wound.
 
-"You're not Alphason's envoy, we don't owe you anything. Acolyte Jacob, add him to the installation."
+"You're not Alphason's apostle, we don't owe you anything. Acolyte Jacob, add him to the installation."
 
 "Alphason? I know him! I know him!" Del yelled, delirious from the bite or maybe from hearing that name. Someone who he
 had long thought dead was sending someone to meet this church? How? Why? His mind was racing trying to rationalize what
@@ -430,8 +430,8 @@ cohesive sentence.
 mouth like a flood. He was unable to pull his thoughts together, and it was he could do to focus on the crowd and their
 cacophonous speech.
 
-"We are Dreamweaver. We are the end. You will submit to us, join us. Together we will become strong and defeat the grand
-enemy."
+"We are Dreamweaver. We are evolution. You will submit to us, join us. Together we will become strong and survive.
+Evolve."
 
 Del heard the voices come from all around, even the acolyte holding him was speaking in turn. He felt himself being half
 pushed, half dragged towards the skeletal choir. He watched in horror as the suited man pulled a bucketed helmet off on

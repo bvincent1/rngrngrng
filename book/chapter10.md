@@ -79,3 +79,38 @@ we escaped together out through a loading elevator."
 
 Rikki stopped part ways through typing to look at Del, then Andrea. She had a tough time believing that this woman had
 done anything so selfless as to help him without some sort of motive.
+
+"You're sure that's what happened?" Rikki asked incredulously. "I kinda doubt this bitch would do anything but save her
+own skin."
+
+Del looked back at her with a look of confusion. "I'm just telling you what happened. Why don't we just ask her? Or
+Hector. Do you know where he went?"
+
+"No. It's not like he even offered before he up and left. Besides didn't you say these church guys were looking to find
+him, or meet or something?" Rikki turned back to her screens, and resumed her research. She still wanted to learn more
+about this 'Alphason', and see if they could somehow link him to this puzzle.
+
+"Well, that's what this one guy said. He mentioned an apostle. Kinda made me think of him. Of course he could have been
+speaking metaphorically. Besides that's not the dangerous part. It's a cult."
+
+Rikki could tell Del had paused, trying to emphasize for dramatic effect.
+
+"Yeah, most religions are." She brushed him off, not even bothering to break away from her new work.
+
+"No, it's literally a cult. Like with literal brainwashing. They have some sort of tech that they attach you too and
+then they zap your mind. That's what they did to me."
+
+"So wait, they hooked you up to this machine, and then what? What did you see?" She asked, curious, and concerned, but
+she was dedicated to finishing this task first.
+
+"Nothing." Del said. "I didn't see anything, the next thing I knew Andrea had blown the bucket clean off my head and
+then I was fighting for my life against a bunch of them. Oh shit I forgot about my neck!" Del yelled.
+
+Rikki could not stop herself from getting distracted this time, and turned to see Del had pulled his jacket off his neck
+to reveal a blood caked wound of tiny holes in a semi circle just next to his neck.
+
+"Are you fucking kidding me?!" She screamed at him. "Did you just do that?! Did that cult do that?! Did you just bleed
+all over my cot?! Jesus fucking christ!"
+
+And she took off from her work to get the remainder of her medical supplies. At this rate she was going to need to
+restock in a few hours. _For all I know that corpo is bleeding out into my bedroll. Would serve her right._
