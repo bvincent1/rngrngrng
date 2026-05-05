@@ -113,4 +113,38 @@ to reveal a blood caked wound of tiny holes in a semi circle just next to his ne
 all over my cot?! Jesus fucking christ!"
 
 And she took off from her work to get the remainder of her medical supplies. At this rate she was going to need to
-restock in a few hours. _For all I know that corpo is bleeding out into my bedroll. Would serve her right._
+restock in a few hours. _For all I know that corpo is bleeding out into my bedroll too. Would serve her right though._
+She hurried for her kit. She hauled the entire box to the cot, and kneeling started sorting through the contents. Del
+had gently peeled the caked on jacket from his neck and tiny pricks of fresh blood welled up from the freshly disturbed
+scabs. He seemed nonplussed by the injury, clearly having forgotten about it before he had sat upright. Rikki finally
+fished out the supplies and gently set them down on the cot next to him.
+
+"Sorry Rikki. I kinda forgot to check it." He said, clearly embarrassed.
+
+"You're only apologizing because you need my help this time. And you want your clothes in one piece." She said, gently
+peeling back the rest of his shirt to check for anything else along his back. She saw that the wound was actually a
+rough circle with tiny but deep jabs in roughly even spacing.
+
+"What did this? Was it that brainwashing bucket you mentioned?" She asked while simultaneously manipulating Del back and
+forth to catch the light better.
+
+"No it was a human. One of the cult members. But they were different. I didn't really get a good look at em." Del
+paused. "I can stand, lets move over to the table."
+
+Rikki stepped back, and watched closely as Del stood. He was remarkably sturdy having just been through what could only
+be described as a descent into hell. Del leaned over, and Rikki half jumped to catch him, but stopped when she realized
+he was just reaching for the supplies she had unloaded. With the awkward bundle in his arms he strode to the table, lay
+them out in a pile, and sat at the only chair, his front to the chair-back. She followed him, and watched as he
+carefully pulled off him jacket, then his pulled his shirt over his head. Rikki did her best to start the conversation
+again, trying to distract herself and him.
+
+"So what some cultist just jumped up and bit you, then they strapped a bucket to your head? And left these marks in your
+shoulder? I've heard of wild body mods, but not like this. Monster teeth? Implants sure, but teeth?" She asked
+incredulously.
+
+"I dunno." He replied then gasped quietly as she applied the anti-septic. "I don't think it was a body mod. Something
+about these guys. Makes me think it wasn't something that happened before they got taken." He trailed off in thought.
+
+"So they're abducting people, brainwashing them, then modding them and for what? Some religious army? I mean I guess."
+Rikki talked quickly and loudly. She was nervous, though for the life of her she could not decide why. Maybe it was all
+these people. Maybe she just needed sleep.
