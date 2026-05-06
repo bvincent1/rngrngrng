@@ -209,4 +209,38 @@ She had yet to move and seemed focused on whatever was directly in front of her.
 At the mention of it, Andrea took a visible breath and strode towards the back. Rikki watched her, half expecting her to
 up the pace, but she held fast. Only once she shut the door, did Rikki turn back to the info dump.
 
-"So you used to be part of a merc group? I suppose that makes sense."
+"So you used to be part of a merc group? I suppose that makes sense. What was your job? Or was it a rank? You must've
+been part of some squad or something? What even happened to them?" Rikki internally winced as she realized she was
+rapidly throwing out questions again. She tried to slow her thoughts, and compose herself again. This was all extremely
+exciting to her, and her brain was powering through all this new information faster than she could express it. Even with
+her side gig as Del's handler, she had not known about all this. She had only really dipped her toes into this world by
+chance, and here was an opportunity to dive in.
+
+"Well... yes. And I was part of the scouts platoon. And well... up until yesterday I thought they had all died." Del
+responded gloomily. He seemed both upset, and confused. "Seems like I might be the only one again, now that Alphason's
+dead."
+
+"Wait. Oh. I'm sorry Del. I didn't know." Rikki paused, feeling genuinely bad for him. She felt she could partially
+relate, but her loss was probably different.
+
+"It's fine. Not like I told anyone. What I wanna know now is what he was doing here? Why was that cult waiting for him?
+What was he doing at Uniicorp?"
+
+"Well for one this Carthatch guy is it. He's the CEO of a megacorp. Whatever he was doing, it must have been big." Rikki
+hurriedly tried to change the topic. She did not do well with hard emotions. "As to that other thing. It doesn't say why
+he died. But further down it says it was recent. Only like two weeks ago. That's strange." Rikki paused.
+
+"What?" Del said, clearly past the death of his former boss who clearly meant a lot to him.
+
+"His file kinda keeps going afterwards...?" Rikki trailed off upwards. "It's here, near the bottom. His info was
+transferred to a different department. The 'deep research division'. That sounds bad and strange." Rikki said, only to
+inwardly flinch, again, when she realized she had strayed back onto emotional ground. _Fuck me, stop doing it!_ She was
+really starting to hate herself again. Try as she might, she just could not get a handle on her brain. It always seemed
+to run away on her and get her into uncomfortable situations that she would have done anything to have avoided. _Fuck
+me._ She winced doubly.
+
+"Deep research." Del repeated thoughtfully.
+
+Rikki heard a grumble from the washroom, and Andrea came out. Her face was damp, and she was looking paler than she had
+a minute ago. Her demure, however, had improved slightly and she walked towards them with her usual confidence that made
+Rikki instinctively hate her.
