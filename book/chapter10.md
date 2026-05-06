@@ -135,16 +135,78 @@ Rikki stepped back, and watched closely as Del stood. He was remarkably sturdy h
 be described as a descent into hell. Del leaned over, and Rikki half jumped to catch him, but stopped when she realized
 he was just reaching for the supplies she had unloaded. With the awkward bundle in his arms he strode to the table, lay
 them out in a pile, and sat at the only chair, his front to the chair-back. She followed him, and watched as he
-carefully pulled off him jacket, then his pulled his shirt over his head. Rikki did her best to start the conversation
-again, trying to distract herself and him.
+carefully pulled off him jacket, then his pulled his shirt over his head. Del finished with pulling the gun from his
+belt and depositing it with a loud clack.
+
+"I owe you for that." He said, clearly busy pondering something in his own head.
+
+Rikki did her best to start the conversation again, trying to distract herself and him.
 
 "So what some cultist just jumped up and bit you, then they strapped a bucket to your head? And left these marks in your
 shoulder? I've heard of wild body mods, but not like this. Monster teeth? Implants sure, but teeth?" She asked
 incredulously.
 
-"I dunno." He replied then gasped quietly as she applied the anti-septic. "I don't think it was a body mod. Something
+"I dunno." He replied then winced quietly as she applied the anti-septic. "I don't think it was a body mod. Something
 about these guys. Makes me think it wasn't something that happened before they got taken." He trailed off in thought.
 
 "So they're abducting people, brainwashing them, then modding them and for what? Some religious army? I mean I guess."
 Rikki talked quickly and loudly. She was nervous, though for the life of her she could not decide why. Maybe it was all
-these people. Maybe she just needed sleep.
+these people. Maybe she just needed sleep. She continued with her makeshift medical procedure.
+
+"So what do you think they want?" she pried, trying to piece this all together.
+
+"I dunno. They said they were waiting for someone else. I still don't know how they fit into this though. Alphason. I
+didn't even know he was here. What could he even have to do with them?" Del wandered off again, absorbed in his own
+thoughts.
+
+Rikki finished up with some tape and went to wash her hands. _Shit, I forgot to wash before._ She sheepishly walked
+away, hoping Del would not notice.
+
+"You guys gonna fuck or something now?" Andrea groaned.
+
+Rikki turned to look at her, face bristling with anger. Andrea was uncurled on the floor. Her bright eyes were watching
+them, tired but observant.
+
+"The fuck are you talking about corpo-bitch!" Rikki spat with as much venom as she could muster.
+
+This bitch had gotten her rilled up so quickly she felt like she could have boiled water. Her face must have shown it
+because Andrea lazily waved her off, and then proceeded to prob herself up into a sitting position. Now it was herself,
+this Andrea woman, and Del. _With any luck Hector will show up and we'll have a real debriefing._ Rikki's face still
+burned, but she did her best to bring her emotions back under control. This woman was clearly trying to get to her, and
+she had to do her best not to let her. Rikki glanced at Del to see what he was he was doing, but he was basically
+ignoring there little spat.
+
+He had turned to face Rikki's monitors and she could see he was squinting at one of them. Rikki followed his gaze until
+she saw that one of her apps had a notification icon pulsing away. It was a response to a query she had sent out for
+this 'Alphason' guy she had suddenly heard so much about. The reply was quite long and she abandoned her issues right at
+that moment to read it. Normally when she sent out a request to her network of co-hackers and analystics it took days
+for a response, if any. But this had been minutes. Even more interesting was the length. Usually all she got was a
+couple of details like address, full name, maybe a description. She saw the text was actually minimized and sat down to
+manipulate her cursor to expand it. An entire profile expanded underneath the original response. She skimmed the
+contents, and heard Del walk over to read it as well. They both spent a minute hovering over one of the side monitors to
+try and understand what they were seeing.
+
+> Felix Alphason. Status deceased. Former head of acquisitions at Uniicorp. Direct overseer, Kane Carthatch.
+
+"Holy shit." Del breathed.
+
+"Holy shit." Rikki echoed.
+
+"He was head of acquisitions? What like acquiring companies? How do you know this guy Del?" Rikki spurted out in rapid
+fire question mode.
+
+"He was our leader. Colonel Alphason. Leader of the lost company." Del said, clearly still aghast by what he had read.
+
+There was more. Lists and entries of his known reportees, a recent photo of him in a very expensive black suit, and even
+a list of his recent acquisitions.
+
+"Acquisitions means he stole stuff. Or people." Andrea chimed in from her position on the floor.
+
+She had yet to move and seemed focused on whatever was directly in front of her. Rikki recognized that look.
+
+"Bathroom's over there." Rikki pointed to the back, along the wall Andrea had been resting against.
+
+At the mention of it, Andrea took a visible breath and strode towards the back. Rikki watched her, half expecting her to
+up the pace, but she held fast. Only once she shut the door, did Rikki turn back to the info dump.
+
+"So you used to be part of a merc group? I suppose that makes sense."
