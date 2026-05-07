@@ -186,14 +186,15 @@ manipulate her cursor to expand it. An entire profile expanded underneath the or
 contents, and heard Del walk over to read it as well. They both spent a minute hovering over one of the side monitors to
 try and understand what they were seeing.
 
-> Felix Alphason. Status deceased. Former head of acquisitions at Uniicorp. Direct overseer, Kane Carthatch.
+> Felix Alphason. Status deceased. Former head of acquisitions at Uniicorp. Direct overseer, Kane Carthatch. Reportees:
+> Lili Kant.
 
 "Holy shit." Del breathed.
 
 "Holy shit." Rikki echoed.
 
-"He was head of acquisitions? What like acquiring companies? How do you know this guy Del?" Rikki spurted out in rapid
-fire question mode.
+"He was head of acquisitions? What like acquiring companies? How do you know this guy Del? And Lili was his what?
+Assistant?" Rikki spurted out in rapid fire question mode.
 
 "He was our leader. Colonel Alphason. Leader of the lost company." Del said, clearly still aghast by what he had read.
 
@@ -242,5 +243,69 @@ me._ She winced doubly.
 "Deep research." Del repeated thoughtfully.
 
 Rikki heard a grumble from the washroom, and Andrea came out. Her face was damp, and she was looking paler than she had
-a minute ago. Her demure, however, had improved slightly and she walked towards them with her usual confidence that made
-Rikki instinctively hate her.
+a minute ago. Her demure, however, had improved slightly and she walked towards them with her previous swagger that had
+made Rikki instinctively hate her.
+
+"Deep research is headed by Ivan Ziatovsicsh." Andrea deadpanned. "It's for like science projects and for the power
+plant."
+
+Now that she was closer, Rikki could see the exhaustion in her eyes, and the pallor on her face. Rikki could not help
+but hate her for her relations to a megacorp that had destroyed Rikki's, and countless others', lives in the pursuit of
+power. Rikki held herself apart from the corporate goons and workers, but ultimately even she relied on them for work,
+albeit in a roundabout fashion.
+
+"He reports to Carthatch as well. Though I heard he's been busy lately. Something about a breakthrough. Anyways if your
+guy got transferred there, Ziatov' would know about it."
+
+"How do you know all this?" Del asked, crossing his arms at her.
+
+Rikki had to stop herself from spurting out the obvious answer since to be fair, all of Rikki's opinions were totally
+unfounded. She turned away from the monitor and made eye contact with the woman. Forcing herself to focus on her, even
+though it made Rikki uncomfortable to even acknowledge her. But she persisted. To Andrea's credit, she did not shirk
+away from their stares, and even rose to meet them.
+
+"Cause it's my job." Andrea said flatly.
+
+Rikki shifted in her chair, but she noticed Del just stood stock still, watching her. They all just waited in silence.
+Rikki was unsure of Andrea would volunteer any more information, but she decided waiting until Del relented was the
+right play.
+
+"My team is in charge of internal intelligence gathering." Andrea relented under their combined stares.
+
+Rikki watched Del ponder this out of the corner of her eye. He eventually uncrossed his arms, clearly willing to move
+on.
+
+"Put a fucking shirt on." Andrea sneered at Del, and Rikki had to do her best not to blush or laugh. Rikki turned to
+face her monitors, trying to hide any reaction on her face. She heard Del exhale in disgust, and walk towards the table.
+
+"I still don't get how all this fits together." Rikki said loudly, for Del's benefit. "Andrea, care to let us in on
+anything else?"
+
+Rikki heard Andrea let out a breath, clearly tired of her.
+
+"I don't know." Andrea said, exhaustedly.
+
+"Wow, that took a lot out of you." Rikki replied, with a snark. "Must be tough not knowing everything."
+
+To her credit Andrea did not rise to the bait. Instead she turned and faced Del. Rikki followed her gaze, and saw he had
+out his shirt back on, and half sat, half leaned, against the table.
+
+"How well do you know Alphason?" Andrea asked Del.
+
+She spoke evenly, and without betraying anything in her voice. Rikki could feel the tone of the conversation shift.
+Andrea was up to something.
+
+"Well enough." Del replied. "He's a great man. Honorable. Does right by his people. Did right by me."
+
+Del was eyeing up Andrea suspiciously, but his tone was even and honest. They were both waiting on whatever Andrea had
+to say next.
+
+"So you were part of them then? The lost?" Andrea inquired.
+
+"Yeah. Scout platoon, fifth squad." Del answered, his tone shifting into that military drawl of polite bluntness.
+
+"But they're gone now?" Andrea asked.
+
+"As far as I know." Del answered again.
+
+Rikki could not help but feel bad for him, and simultaneously hate Andrea even more.
