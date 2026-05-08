@@ -304,8 +304,87 @@ to say next.
 
 "Yeah. Scout platoon, fifth squad." Del answered, his tone shifting into that military drawl of polite bluntness.
 
-"But they're gone now?" Andrea asked.
+"But they're all dead now?" Andrea asked.
 
 "As far as I know." Del answered again.
 
-Rikki could not help but feel bad for him, and simultaneously hate Andrea even more.
+Rikki could not help but feel bad for him, and simultaneously hate Andrea even more. She watched as Del stood even
+straighter, clearly falling back on well worn habits. Rikki watched and waited. She did not know who the lost were, but
+clearly Andrea did. Then things took a turn.
+
+"Did you know the lost worked for Uniicorp?" Andrea asked. She kept a straight tone, but Rikki felt her intent behind
+the question. _Did you know we owned you?_
+
+"No." Del answered. Still no reaction from him.
+
+Rikki felt a shock through her whole system at the knowledge. Her brain was reeling from ~~learning~~ that Del had,
+unbeknownst to him, been working for a corp. Maybe through intermediates, or maybe even directly, but still. These lost
+people were clearly somewhat famous, or infamous, based of Andrea's knowledge, but how exactly they fit into this Rikki
+still had no idea. Rikki felt even more like she did not know Del, and how could she. It had been chance that brought
+them together and, all thing considered, she felt like they made a good team. But now. The image she had built up of
+him, inadvertently, had been torn down. Rikki knew she was not strong or brave enough to ask Del about his past, she
+could bare even think about her own. So how could she come to grips with what he might have done?
+
+"I..." Del's composure faltered. "We worked for Alphason. He was our leader. He saved us, brought us together, and
+together we chose to follow him." Del paused. "I know what you're inferring, but he didn't sell us out. He wouldn't!"
+
+At that last bit, Rikki knew, that Andrea knew, that she had cut deep. Andrea radiated spite and malice.
+
+"Does it upset you to learn that you were a pawn?" She asked, relishing her newfound power.
+
+Del stood still, clearly pondering what to do next. Rikki wondered how he would answer.
+
+"I am going to find this Ziatovsicsh and find out myself." He resolved to say.
+
+"How are you going to find him, you don't even know where he is." Andrea said, and she started walking around, fixing
+her attention on Rikki now. "I doubt you'll be able to find him." Andrea smirked.
+
+"Fuck off bitch." Rikki spat at her.
+
+"Let me guess, you know where he is?" Del asked, clearly getting to the crux of Andrea's point.
+
+_She wants something._ Rikki surmised.
+
+"I do, but unlike you lot, I want something else even more. Perhaps you remember? The reason we all got started here?
+Lili Kant. Alphason's assistant. Or maybe you lot simply overlooked that little detail?" Andrea prowled back and forth
+now. A cat toying with it's prey. "You get me what I want, I get you what you want?"
+
+Silence. Rikki was following along, and while she was invested in Del's plights, Andrea was right. They needed to get
+paid. They needed a win. This mystery and how an underground cult of freaks was connected to an ex-mercenary colonel
+turned corpo-head gone missing was the background plot. Rikki was already out a bunch of medical supplies, and god knew
+how many bullets. _Probably all of them._ They had to get back on track.
+
+"Ok, but we don't even have a lead? That last one was a dead end in case you didn't notice." Rikki chimed in. "Kant's
+gone. She's out in the wild. There's not going to be anything left at her apartment if the sweepers are any decent,
+which I'm willing to be they are. It's not like we can just apparate a lead!"
+
+Rikki was at her wits end with this woman. She could not just expect them to find something where they had all missed
+not a day beforehand.
+
+"You're asking for the impossible!" Rikki yelled, loosing her cool as well. "There's gotta be something else we can
+trade?"
+
+Rikki glanced at Del for support, but he was quiet, standing stock still exactly as he had been doing the whole time.
+Rikki herself had shifted and fidgeted in her chair the whole time. She could not imagine how he had managed to
+withstand this treatment. They all waited in silence, Andrea alternating her devastating look between the two of them,
+clearly expecting an answer rather than implied conceit.
+
+"You don't need Kant." Del spoke in cool even tone. "You need something better."
+
+Rikki looked up at Del. There was no way she could know what he was getting at, but his mood had shifted, deeply in
+contrast with his rigid stance.
+
+"You need whatever she was after." Del continued. "She was on to something, and bringing her in will only get you to
+square zero. You need to get past that. You need an even bigger win."
+
+Rikki put two and two together in an instant. This whole time she had missed the obvious implications that Del seemed to
+intrinsically grasp. Andrea was spending all her time acting like she was in charge, and that she was running the show,
+but she was not. _There's always a bigger fish._ Rikki got it now. Andrea was just some underling in a long chain of
+underlings. Del was suggesting they stick together because otherwise all Andrea would have was a performance review, or
+some other equally useless corporate punishment.
+
+"What are you proposing Del?" Andrea asked, a tone of anger in voice.
+
+_She's pissed now_. Rikki's brain was racing for an answer. Trying to keep up with Del, maybe even solve it for him if
+he had only gotten this far. What could they offer? All they had was a mystery, the lucky result of some clearly close
+calls.
