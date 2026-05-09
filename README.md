@@ -27,6 +27,7 @@ could mean the difference between survival and total destruction.
 8. [misalignment of priorities](./book/chapter8.md)
 9. [it's not enough](./book/chapter9.md)
 10. [empty handed](./book/chapter10.md)
+11. [guns blazing](./book/chapter11.md)
 
 ## Formatting
 
