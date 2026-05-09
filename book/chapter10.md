@@ -1,6 +1,6 @@
 ---
-title: guns blazing
-description:
+title: esmpty handed
+description: Rikki gets tangled up in the web. Del and Andrea make a plan.
 ---
 
 > UNII Corps log date 2327-09-31-1704 8h later
@@ -386,5 +386,50 @@ some other equally useless corporate punishment.
 "What are you proposing Del?" Andrea asked, a tone of anger in voice.
 
 _She's pissed now_. Rikki's brain was racing for an answer. Trying to keep up with Del, maybe even solve it for him if
-he had only gotten this far. What could they offer? All they had was a mystery, the lucky result of some clearly close
-calls.
+he had only gotten this far. What could they offer? Del and Andrea had barely gotten away at all as far as Rikki could
+tell, and she chopped that up to luck. Unless.
+
+"Hector." Del and Rikki answered in unison.
+
+"Hector?" Andrea asked, incredulously.
+
+Del gave Rikki a look that told her he was on the same page.
+
+"Hector knows a lot more than he lets on." Del continued. "He was the one that cult was waiting for, not you. Whatever
+Lili Kant is mixed up in it's too big for her alone. Alphason goes missing, and then we're tasked with hunting her down?
+She's too small to do this alone. The cult was clearly in on it, but we still don't know how it all fits together.
+Hector does. He's all but told us."
+
+Del paused, making hard eye contact with Andrea for emphasis. Rikki watched his body language change as well. He went
+from from defensive reflex to cold ferocity.
+
+"We find Hector. Get him to talk. He'll know how this all connects. That'll get you your win. And..." He added before
+Andrea could cut him off. "You're coming with us, otherwise we'll just get the answers out of him and cut you out."
+
+He turned to face Rikki, and she caught his meaning. _Keep your enemies close._ Rikki admired the man for sure. He knew
+a thing or two it seems. _Not just some jarhead scout._ She absentmindedly wondered what the rest of his company had
+been like? Was he used to dealing with loathsome bullies? Did he really not know they had been corporate sellouts the
+whole time? And what kind of man had earned this kind of undying respect and loyalty from his soldiers.
+
+Andrea frowned. She had stopped prowling around, and was now pouting. Rikki felt a smug appreciation for just desserts.
+
+"Why don't you go ahead and tell us where he is." Del said and Rikki had to double check that he had not been talking to
+herself.
+
+"Andrea." Del added. Mimicking the icy tone she had used on him earlier.
+
+_Take that. Bitch._
+
+"Did you put a tracker on him?" Rikki asked.
+
+Andrea looked at both of them like a child caught with their hand in the cookie jar. She had clearly thought extremely
+highly of herself and her little tricks. This was clearly a blow to her self image. _Good._
+
+"What makes you think I'll just share it with you?" She asked indignantly.
+
+Rikki was kind of stumped on that one. She had not really interacted with Hector at all, so she did not really have any
+idea who or even what he was. He did not seem particularly skilled, but if these cultists had really wanted him, and he
+had come out alive and completely unscathed then he must be something.
+
+"You've seen him. You'll need our help to get him to talk. Something tells me you can't threaten a guy like him. And I
+know you're not going back to your bosses empty handed." Del said.
