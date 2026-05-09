@@ -26,6 +26,7 @@ mean the difference between survival and total destruction.
 7. [Dreamweaver](./book/chapter7.md)
 8. [misalignment of priorities](./book/chapter8.md)
 9. [it's not enough](./book/chapter9.md)
+10. [empty handed](./book/chapter10.md)
 
 ## Formatting
 

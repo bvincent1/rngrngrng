@@ -1,5 +1,5 @@
 ---
-title: esmpty handed
+title: empty handed
 description: Rikki gets tangled up in the web. Del and Andrea make a plan.
 ---
 
