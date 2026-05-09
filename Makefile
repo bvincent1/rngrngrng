@@ -22,7 +22,7 @@ clean: ## clean any codegen files
 
 BOOK_FILES := $(wildcard ./book/*.md)
 counts.txt: $(BOOK_FILES) ## Update the [counts.txt] file from all the [./book/*.md] files
-	@./scripts/word_count.sh ./book/*.md > ${COUNT_FILE}
+	@printf '%s\n' ./book/*.md | sort -V | xargs ./scripts/word_count.sh > ${COUNT_FILE}
 	@awk 'BEGIN {sum=0} { sum+=$$1 } END {print sum}' ${COUNT_FILE} >> ./${COUNT_FILE}
 	@cat ${COUNT_FILE}
 
