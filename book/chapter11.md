@@ -153,4 +153,32 @@ Andrea walked over to a bench and sat. She fixed Del with her icy stare.
 
 She then pulled out her mobile and started idly scowling at the screen.
 
-Del paused, and looked around, unsure where to go.
+Del paused, and looked around. There was a half dozen different doors evenly spaced on both sides of the long hall. Each
+door was plain an unassuming. The lighting left no shadows and made the room feel cold and isolating. _Probably the
+point._ Del started for the doors at the end of the hall, knowing those could lead to only one place. The facility
+'pens' upstairs. Somewhere in the back of his head, Del made a connection to this place and the gathering room under the
+church. The thought made him shiver involuntarily, as a rapid series of pictures flashed through his head. The mass of
+cabling at the center of the room. The small glass pens on either side. Clothing littering the floor. People, reduced to
+husks, standing stock still attached to a machine. The bony protrusion underneath that deep and dark hood. Twin pins of
+light. Del felt himself twitch, and stuttered in his gait.
+
+He forced himself back into composure. _Now is not the time for this._ Del focused on putting one foot in front of the
+other. One perfect step, and then another. Before he knew it he was at the doors, and looked for a switch or a call
+button. He took a hesitant step backwards, trying to ascertain what to do next. Against his better judgement, he turned
+around to try and ~~pull~~ a hint from Andrea. She had her nose to her mobile, and was totally oblivious to his issues.
+He almost made to fake a cough to get her attention, when he heard a door click.
+
+Out from the nearest office came a gruff looking man, wearing combat armor. Del involuntarily froze, recognizing the
+make of it at once. Del felt himself go rigid, and instinctively his hands twitched, looking for a weapon to grab. He,
+of course, had nothing nad had to force himself to wait. The heavy boots thudded on the cold concrete floor, and the man
+tapped his helmet. Del heard a faint mumbling along the lines of '-transfer, waiting for lift 2' and he forced himself
+to relax.
+
+Del felt so far out of his depth it was not even registering to him anymore. He knew if anything went wrong, this would
+be where he ended up. They would not even had to do anything, he would just get thrown into a cell, and processed with
+everyone else. Served up to some corporate hell-camp, or worse. After stewing in his uncomfortable thoughts, the doors
+finally slid open for Del and he almost gladly got on. The guard stepped on, heavy suit causing the lift to noticeably
+sag despite, what Del assumed, it's sturdy cables. The lift itself was utilitarian, without any switches or buttons,
+only a cold grated floor, and fences for walls. It was extra large, and Del felt exposed standing at the front with the
+guard. A second later he heard the guard mumble something, and the lift juddered. The dim lights flickered slightly and
+Del felt a pull. _At least wer're moving int he right direction._
