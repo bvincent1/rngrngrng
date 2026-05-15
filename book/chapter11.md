@@ -102,24 +102,24 @@ him Del heard a a breath, and then saw Andrea had had enough and started crossin
 He did not bother swearing or trying to discipline her, knowing it would only cause more problems. He instead chose to
 fall in line and play the part he had agreed to.
 
-Andrea arrived at the doors, and gave him a sidelong glance. Without a word, she pushed the heavy doors open and walked
-through like she owned the place. Del quickened his pace to make it before the doors closed behind her and he found
-himself standing in a well lit and guarded entryway. The ceiling had harsh florescent lights that bathed the entrance in
-a cold glow. The walls were whitewashed and bare concrete, the same color as outside, just less sun bleached. The floors
-echoed loudly with their steps, and were a duller grey concrete made to look like stone. Andrea strode with all the
-confidence of someone who had done this a thousand times and now considered it beneath her. To Del she seemed almost a
-different person than before. Gone was the irritable and impatient girl, replaced by this icy and corporate woman. She
-walked right up to the security station and eyed the startled guard who had been lazily idling behind a plexiglass
-window. The man visibly stiffened under her icy stare.
+// todo improve description of the main floor Andrea arrived at the doors, and gave him a sidelong glance. Without a
+word, she pushed the heavy doors open and walked through like she owned the place. Del quickened his pace to make it
+before the doors closed behind her and he found himself standing in a well lit and guarded hall. The ceiling had harsh
+florescent lights that bathed the entrance in a cold glow. The walls were whitewashed and bare concrete, the same color
+as outside, just less sun bleached. The floors echoed loudly with their steps, and were a duller grey concrete made to
+look like stone. Andrea strode with all the confidence of someone who had done this a thousand times and now considered
+it beneath her. To Del she seemed almost a different person than before. Gone was the irritable and impatient girl,
+replaced by this icy and corporate woman. She walked right up to the security station and eyed the startled guard who
+had been lazily idling behind a plexiglass window. The man visibly stiffened under her icy stare.
 
 "I'm here to collect a detainee" She said, projecting an air of calm frustration that Del would have found impossible to
 do in the same context.
 
-The guard stared in confusion for a fraction of a second, before turning to his monitor. He jiggled the cursor, and
-waited for it to resume, having let it lapse into sleep mode. There was an awkward pause while they all waited for the
-monitor to resume. Del was standing idly behind her, and the guard made brief eye contact. Del did his best to project
-in equal measure to Andrea, but he felt unprepared and unsatisfied with his performance. Either way, the guard had far
-too much to deal with in front of them both.
+// todo add an ID check The guard stared in confusion for a fraction of a second, before turning to his monitor. He
+jiggled the cursor, and waited for it to resume, having let it lapse into sleep mode. There was an awkward pause while
+they all waited for the monitor to resume. Del was standing idly behind her, and the guard made brief eye contact. Del
+did his best to project in equal measure to Andrea, but he felt unprepared and unsatisfied with his performance. Either
+way, the guard had far too much to deal with in front of them both.
 
 The monitor flickered to life, casting a bleak glow on his face inside the shaded security office. Del heard clicks as
 he navigated the software looking for something. Del heard his heart beating furiously in his head, and felt his skin
@@ -149,7 +149,7 @@ goes wrong._ This would complicate if anything went wrong, which Del had no doub
 
 Andrea walked over to a bench and sat. She fixed Del with her icy stare.
 
-"I was talking to him!" she said with a nod of her hear.
+"I was talking to him." She said with a nod of her head.
 
 She then pulled out her mobile and started idly scowling at the screen.
 
@@ -170,7 +170,7 @@ He almost made to fake a cough to get her attention, when he heard a door click.
 
 Out from the nearest office came a gruff looking man, wearing combat armor. Del involuntarily froze, recognizing the
 make of it at once. Del felt himself go rigid, and instinctively his hands twitched, looking for a weapon to grab. He,
-of course, had nothing nad had to force himself to wait. The heavy boots thudded on the cold concrete floor, and the man
+of course, had nothing and had to force himself to wait. The heavy boots thudded on the cold concrete floor, and the man
 tapped his helmet. Del heard a faint mumbling along the lines of '-transfer, waiting for lift 2' and he forced himself
 to relax.
 
@@ -179,6 +179,63 @@ be where he ended up. They would not even had to do anything, he would just get 
 everyone else. Served up to some corporate hell-camp, or worse. After stewing in his uncomfortable thoughts, the doors
 finally slid open for Del and he almost gladly got on. The guard stepped on, heavy suit causing the lift to noticeably
 sag despite, what Del assumed, it's sturdy cables. The lift itself was utilitarian, without any switches or buttons,
-only a cold grated floor, and fences for walls. It was extra large, and Del felt exposed standing at the front with the
+only a cold grated floor, and fenced walls. It was quite large, and Del felt exposed standing at the front with the
 guard. A second later he heard the guard mumble something, and the lift juddered. The dim lights flickered slightly and
-Del felt a pull. _At least wer're moving int he right direction._
+Del felt a pull. _Moving in the right direction._ Del could not help but glance upwards, but to his dismay their were no
+actual cables suspending them. _It's on gears._ Del saw indents in the walls where he assumed machinery ang gears wound
+them up and down the shaft. _Keeps anyone from trying to slide down._ There was truly no version fo this where things
+did not go absolutely perfectly. Otherwise this would be his tomb.
+
+He felt himself breathing deeply, trying to focus. He was not good at playing games like this, but he did his best to
+refocus himself. _You're not playing a game. You're actually here for Hector. Everything you say is true._ He released a
+breath.
+
+**Tock**
+
+"Nervous? Heh heh. Don't worry about it." The guard's deep electronically amplified voice echoed off the walls.
+
+**Tock**
+
+He ignored the guard. He instead chose to focus on himself. He could feel the floor rumbling, he could imagine the gears
+and machinery ratcheting them upwards. This brought him to wonder how fast this lift actually moved. It felt like it was
+taking forever.
+
+Del heard a low hum, and he felt a deceleration. Quite suddenly a set of double doors appeared in front of them, and Del
+took a half step towards them. He paused, deciding wether he should wait or not for the guard. Before he had time to
+ask, the doors slide open and a musky scent greeted them. The guard had clearly known about the smell, and Del thought
+he detected a hint of amusement.
+
+**Tock**
+
+"Watch your step. Stay behind me." The deep voice said.
+
+**Tock**
+
+Del did as he was told, shifting out of the way to let the man guide him. He did not really enjoy the noise the guards
+helmet made when he talked to him, but it at least told him what the guard was doing.
+
+The building beyond the lift was quite stark compared to the brightly lit corporate environment below. Despite the grim
+lighting, it was warmer up hear. It was not the artificial warmth like from a heater, but the biological kind. There
+were glass pens, tightly packed, and big enough to fit a half dozen people in each. Del watched as faced turned to watch
+him. Hollow eyes in smudged skin in filthy rags watched him hungrily as he walked behind the armored guard. Some people
+shifted to get a better look at him, others simply watched, not bothering to follow them. The guard walked him past box
+after box, each containing several individuals per. Most were men, but Del thought one of two had women in them. All
+were of varying cleanliness, and most were wearing threadbare rags. The guard's boot echoed loudly on the concrete
+floor, while Del's own boots were muffled. At a gap, the guard pointed a free hand towards their right, and indicated
+the last box at the end.
+
+**Tock**
+
+"That's all of the ones from today. You'll have to point them out and grab them yourself. I aint helping you either." He
+said.
+
+**Tock**
+
+Del nodded, and walked towards the glass box. The light was dimm, but not so dim as to make it impossible to pick out
+features. Del was confident he would be able to spot Hector, even if he was turned away. But before he made it to the
+end of the row, out of the corner of his eye, he saw the occupants of one of the boxes shift.
+
+They all stood up, and gathered at the wall of the box. Del was not sure if he should turn to look at them or not, but
+not a moment later he had an answer.
+
+"Kid?" a muffled voice asked.
