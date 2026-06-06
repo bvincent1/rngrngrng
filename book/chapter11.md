@@ -5,237 +5,48 @@ description: Del and Andrea break into a holding facility to go after Hector. In
 
 > UNII Corps log date 2327-09-31-2212 3h later
 
-Del crouched lower as a light swept past him. He could hear water sloshing somewhere ahead, footsteps in the sole deep
-water. He counted down in his head, trying to block out the ache in his neck and his arms. _This is insane._
+Andrea was pissed. She was tired, she was hungover, and she was taking orders from some kid. Her head throbbed, she
+swore that this would be the last time she ever worked with these people. Del was a hotshot who was more likely to catch
+a round to the head trying to do the right thing than anyone she had met, and Rikki was some barely capable hacker
+slacker who's only use thus far had been as a base camp mom to patch them up after they had done all the actual work.
+Rikki's only real contribution so far, was this cover she had acquired for them.
 
-Andrea had provided them with Hector's location, but nobody could have been prepared for the answer when they checked
-it. Hector appeared to be in a holding facility. Upon learning this, Andrea had almost entirely given up hope on Del's
-little plan, but Rikki had pointed out that this was not as bad. It was a sort of halfway house where they stored
-individuals for assignment. Rikki explained how not everyone had the luxury of being incarcerated by governments these
-days. More often than not, corporations would buy your rights up, and then literally enslave you for whatever they
-needed. Rikki had heard horror stories explaining that hard labour was actually the best outcome, and if they deemed you
-to dangerous, you would be labeled for execution. The method of execution was up to the corp. The absence of that detail
-being left Del with an uneasy feeling in his gut.
+"Go over the plan one more time" Del asked more than said.
 
-Del felt a light tap on his should and turned to face Andrea. She had a petulant look on her face.
+Clearly he was nervous, and while she was too she intended to devote every ounce of her willpower to keep him and anyone
+else from learning otherwise. _Typical soldier. Can handle a gun, but can't handle people._ Andrea let out a short sign
+of frustration.
 
-"Why are we hiding?" She whispered to him. "I thought we were going in through the front?"
+"You're 'Drake Lembardo', and you're here with me 'Fatima Albany'", Andrea frowned at the name. _Fuck Rikki._ "We're
+here to pick up a prisoner that was picked up by mistake. Nothing more, nothing less." She made eye contact with him,
+doing her best to summon a withering stare with the remaining willpower. With her throbbing headache, that was easier
+said than done. Either was it seemed to have the desired effect as she watched Del break eye contact from her first.
+"Drake?" She asked. A second passed, and she went to raise her hand to lightly strike him, but he turned to look at her.
 
-Del waited a second before responding, carefully trying to mediate his volume levels.
+She rubbed her temple. "You know what 'Drake', just don't say anything. If anybody talks to you, just nod and point them
+to me."
 
-"We're doing recon. See that bay?" And he pointed across the street towards a fenced off vehicle bay. "If we need to get
-out in a hurry, that'll be our best bet. We assume we're just gonna walk in and out of here, but I think we should plan
-for the worst this time."
+He nodded.
 
-"Don't trust Rikki's forgery?" Andrea smirked, taking yet another opportunity to dig into Rikki's hard work.
+"Good, you already know your character." She said. "Now let's go."
 
-Rikki had taken on the lion's share upfront for this. She had gotten them rough outlines for the building, details
-surrounding what sort of security to expect, and had even forged them documents for one of her hacked credential
-packages. And all that within a span of a few hours. And all that, to just sit on the sidelines and wait. Del understood
-she was not the sort to work in the 'field'. But sitting on the sidelines was not without it's stressors. At least out
-here you knew how exposed you were. Inside, you would never know until it was too late.
+She took the lead, intending to set the example that she was in charge, and not this kid who had manipulated her into
+it. They had been standing on a corner a block away for their little tête-à-tête, and she had to slow before the next
+one. Beyond it was the building they had to break Hector out of. Rikki had described it as some sort of holding facility
+for undocumented people. _Probably where Del would end up someday._ From what she had gathered it was designated
+'Holding station 35'. Andrea peered around the corner of some unmarked building and tried to get a feel for the
+catastrophe they were surely about to walk into. _Fuck._ Del was right at her shoulder, and she swore she could feel his
+mood change even though his stature did not budge a fraction.
 
-Del pulled out his phone, and dialed Rikki. He held up a hand to stave off Andrea, and waited for Rikki to pick up. Del
-knew that Rikki was running on the least sleep out of all of them, though he assumed she was used to strange schedules
-like he was, but he had assumed she was awake for this like they were.
-
-"Yeah" Rikki answered finally.
-
-"We're at the back, there's a big shed, or maybe a warehouse across from the loading bay, any idea what might be in
-there?" Del asked her.
-
-"Stuff." Andrea said rudely.
-
-"Hang on, I'll see if there's anything I missed." Rikki answered briskly.
-
-Del cupped the microphone to stop anything else Andrea said from getting picked up. Del felt certain that Andrea hated
-them both, but he could not help but wonder why she chose to be so grating. _Just keep it to yourself._ She kinda
-reminded him of someone else Del had known.
-
-"Got it." Rikki chimed. "I can't see much of anything, but it looks like they use it to store stuff related to whomever
-they're holding? I can see them dropping off people, and stuff int he same trips, so that's my best guess." Rikki
-answered.
-
-"Got it, thanks Rikki." Del said, and then ended the call.
-
-Andrea made a rude face, clearly suggesting that she had heard Rikki and turned towards the building.
-
-"Glad we cleared that up." She said petulantly.
-
-Del did not bother correcting her attitude. He had been the one to outline their relationship, so he had to live with
-the consequences. And besides, she was the better talker.
-
-"You know your script?" He asked.
-
-"Yes." She responded.
-
-"Then lets go." And he broke away.
-
-Del crouch walked behind the car they had chosen as cover, and leapfrogged from one parked vehicle to the next. Andrea
-followed him, and they made it without any issues. At the last piece of cover Del waited, and took a breath. He tried to
-picture the layout Rikki had described to them one last time, bridging gaps in her details as best he could now that he
-could see the place.
-
-It was quite the layout. It was concrete, just like everything else in this city, but a duller dust color instead of the
-mat and worn grey that made up every other building. There were no cables connecting it to other buildings like deeper
-in the blocks. Rikki had said that it was connected underground, to the old system, and even had a backup somewhere. It
-was tall and rectangular, occupying the entire space of it's block right up to the street. The first two floors were
-used for what passed as admin work. They had small glass windows, inset into the building, and lights were still on in
-some of them. The doors were designed to look like rough ironwork, but Del imagined that was purely for aesthetic
-purposes. He figured they were probably reinforced, but Rikki had been unsure. There wer no side doors, and the at the
-rear was a loading bay and a lot with the aforementioned storage warehouse. There had been three vehicles when they had
-arrived, but now there was only one. This was where the complacency ended. Whomever had built this thing knew what it
-was going to be, because the third floor was blank except for a square column at both the front and back. Only two ways
-in or out. Th rest was empty space. There were lights, and cameras studded along the underside of the fourth, maybe
-third floor, but otherwise it was solid concrete. Above that was the detention facility. Narrow slits instead of
-windows, and all of them were lit. Rikki had shown them a view from above, but it was all tiny vent grills, and no roof
-access.
-
-Behind him he heard Andrea huff in disappointment and frustration. Try as he might, her attitude was wearing thin on
-him. _After this, gotta cut her loose._ Del absently waved her off, and waited again. _Patience._ Nobody had come or
-gone out the front since they had arrived. Del messaged Rikki, confirming that Hector's position was still inside and in
-the upper levels. Andrea's tracker had been pretty good, but it only offered approximate vertical position, leaving some
-doubt as to if Hector was in the upper holder area, or in the main section being processed. Ultimately Del had pushed
-forwards with their plan. They could not afford to let him slip away into a system that would surely kill him. Behind
-him Del heard a a breath, and then saw Andrea had had enough and started crossing the street without him.
-
-He did not bother swearing or trying to discipline her, knowing it would only cause more problems. He instead chose to
-fall in line and play the part he had agreed to.
-
-// todo improve description of the main floor Andrea arrived at the doors, and gave him a sidelong glance. Without a
-word, she pushed the heavy doors open and walked through like she owned the place. Del quickened his pace to make it
-before the doors closed behind her and he found himself standing in a well lit and guarded hall. The ceiling had harsh
-florescent lights that bathed the entrance in a cold glow. The walls were whitewashed and bare concrete, the same color
-as outside, just less sun bleached. The floors echoed loudly with their steps, and were a duller grey concrete made to
-look like stone. Andrea strode with all the confidence of someone who had done this a thousand times and now considered
-it beneath her. To Del she seemed almost a different person than before. Gone was the irritable and impatient girl,
-replaced by this icy and corporate woman. She walked right up to the security station and eyed the startled guard who
-had been lazily idling behind a plexiglass window. The man visibly stiffened under her icy stare.
-
-"I'm here to collect a detainee" She said, projecting an air of calm frustration that Del would have found impossible to
-do in the same context.
-
-// todo add an ID check The guard stared in confusion for a fraction of a second, before turning to his monitor. He
-jiggled the cursor, and waited for it to resume, having let it lapse into sleep mode. There was an awkward pause while
-they all waited for the monitor to resume. Del was standing idly behind her, and the guard made brief eye contact. Del
-did his best to project in equal measure to Andrea, but he felt unprepared and unsatisfied with his performance. Either
-way, the guard had far too much to deal with in front of them both.
-
-The monitor flickered to life, casting a bleak glow on his face inside the shaded security office. Del heard clicks as
-he navigated the software looking for something. Del heard his heart beating furiously in his head, and felt his skin
-start to sweat. Rikki had forged what she assumed would be documents demanding the release of a detainee, but she had
-admitted she did not know exactly what the wording would be. He heard an audible pause in the clicks and his heart
-pounded even louder. A second later, he heard rhythmic clicking as Andrea idly drummed her nails on the small counter on
-their side of the bunker. She had chosen a brisk rhythm, and Del realized she was making direct eye contact with the
-guard. Del watched as the man quickly alternated between meeting her gaze, and reading whatever message Rikki had forged
-for them.
-
-Without warning Andrea stopped and made for the gate. She paused in front of the thick plexiglass doors, and Del watched
-her give him a nod to follow. He had absently forgotten, and cursed himself for breaking the illusion.
-
-"Open the doors, and get me the detainee. Now!" Andrea barked, not even bothering to turn to face the hapless guard.
-
-There was a pause, which was probably only perceptible to them, before Del heard a whir of motors and watched the doors
-fold inwards.
-
-"Sssorry for the delay." The guard stumbled.
-
-Del heard the guard stand up, and he had to force himself not to turn. Andrea walked beyond the doors as soon as they
-opened enough to fit her, and Del ordered his legs to follow. _Focus now._ It was only after they had cleared the doors
-did he consciously acknowledge the guard adding "-but protocol dictates that only one of you can go up."
-
-Del felt his blood run cold. They had planned that both of them would enter the holding area. _Better odds if anything
-goes wrong._ This would complicate if anything went wrong, which Del had no doubt would happen.
-
-Andrea walked over to a bench and sat. She fixed Del with her icy stare.
-
-"I was talking to him." She said with a nod of her head.
-
-She then pulled out her mobile and started idly scowling at the screen.
-
-Del paused, and looked around. There was a half dozen different doors evenly spaced on both sides of the long hall. Each
-door was plain an unassuming. The lighting left no shadows and made the room feel cold and isolating. _Probably the
-point._ Del started for the doors at the end of the hall, knowing those could lead to only one place. The facility
-'pens' upstairs. Somewhere in the back of his head, Del made a connection to this place and the gathering room under the
-church. The thought made him shiver involuntarily, as a rapid series of pictures flashed through his head. The mass of
-cabling at the center of the room. The small glass pens on either side. Clothing littering the floor. People, reduced to
-husks, standing stock still attached to a machine. The bony protrusion underneath that deep and dark hood. Twin pins of
-light. Del felt himself twitch, and stuttered in his gait.
-
-He forced himself back into composure. _Now is not the time for this._ Del focused on putting one foot in front of the
-other. One perfect step, and then another. Before he knew it he was at the doors, and looked for a switch or a call
-button. He took a hesitant step backwards, trying to ascertain what to do next. Against his better judgement, he turned
-around to try and ~~pull~~ a hint from Andrea. She had her nose to her mobile, and was totally oblivious to his issues.
-He almost made to fake a cough to get her attention, when he heard a door click.
-
-Out from the nearest office came a gruff looking man, wearing combat armor. Del involuntarily froze, recognizing the
-make of it at once. Del felt himself go rigid, and instinctively his hands twitched, looking for a weapon to grab. He,
-of course, had nothing and had to force himself to wait. The heavy boots thudded on the cold concrete floor, and the man
-tapped his helmet. Del heard a faint mumbling along the lines of '-transfer, waiting for lift 2' and he forced himself
-to relax.
-
-Del felt so far out of his depth it was not even registering to him anymore. He knew if anything went wrong, this would
-be where he ended up. They would not even had to do anything, he would just get thrown into a cell, and processed with
-everyone else. Served up to some corporate hell-camp, or worse. After stewing in his uncomfortable thoughts, the doors
-finally slid open for Del and he almost gladly got on. The guard stepped on, heavy suit causing the lift to noticeably
-sag despite, what Del assumed, it's sturdy cables. The lift itself was utilitarian, without any switches or buttons,
-only a cold grated floor, and fenced walls. It was quite large, and Del felt exposed standing at the front with the
-guard. A second later he heard the guard mumble something, and the lift juddered. The dim lights flickered slightly and
-Del felt a pull. _Moving in the right direction._ Del could not help but glance upwards, but to his dismay their were no
-actual cables suspending them. _It's on gears._ Del saw indents in the walls where he assumed machinery ang gears wound
-them up and down the shaft. _Keeps anyone from trying to slide down._ There was truly no version fo this where things
-did not go absolutely perfectly. Otherwise this would be his tomb.
-
-He felt himself breathing deeply, trying to focus. He was not good at playing games like this, but he did his best to
-refocus himself. _You're not playing a game. You're actually here for Hector. Everything you say is true._ He released a
-breath.
-
-**Tock**
-
-"Nervous? Heh heh. Don't worry about it." The guard's deep electronically amplified voice echoed off the walls.
-
-**Tock**
-
-He ignored the guard. He instead chose to focus on himself. He could feel the floor rumbling, he could imagine the gears
-and machinery ratcheting them upwards. This brought him to wonder how fast this lift actually moved. It felt like it was
-taking forever.
-
-Del heard a low hum, and he felt a deceleration. Quite suddenly a set of double doors appeared in front of them, and Del
-took a half step towards them. He paused, deciding wether he should wait or not for the guard. Before he had time to
-ask, the doors slide open and a musky scent greeted them. The guard had clearly known about the smell, and Del thought
-he detected a hint of amusement.
-
-**Tock**
-
-"Watch your step. Stay behind me." The deep voice said.
-
-**Tock**
-
-Del did as he was told, shifting out of the way to let the man guide him. He did not really enjoy the noise the guards
-helmet made when he talked to him, but it at least told him what the guard was doing.
-
-The building beyond the lift was quite stark compared to the brightly lit corporate environment below. Despite the grim
-lighting, it was warmer up hear. It was not the artificial warmth like from a heater, but the biological kind. There
-were glass pens, tightly packed, and big enough to fit a half dozen people in each. Del watched as faced turned to watch
-him. Hollow eyes in smudged skin in filthy rags watched him hungrily as he walked behind the armored guard. Some people
-shifted to get a better look at him, others simply watched, not bothering to follow them. The guard walked him past box
-after box, each containing several individuals per. Most were men, but Del thought one of two had women in them. All
-were of varying cleanliness, and most were wearing threadbare rags. The guard's boot echoed loudly on the concrete
-floor, while Del's own boots were muffled. At a gap, the guard pointed a free hand towards their right, and indicated
-the last box at the end.
-
-**Tock**
-
-"That's all of the ones from today. You'll have to point them out and grab them yourself. I aint helping you either." He
-said.
-
-**Tock**
-
-Del nodded, and walked towards the glass box. The light was dimm, but not so dim as to make it impossible to pick out
-features. Del was confident he would be able to spot Hector, even if he was turned away. But before he made it to the
-end of the row, out of the corner of his eye, he saw the occupants of one of the boxes shift.
-
-They all stood up, and gathered at the wall of the box. Del was not sure if he should turn to look at them or not, but
-not a moment later he had an answer.
-
-"Kid?" a muffled voice asked.
+Down a block, and across from them was one of the most hostile buildings Andrea had ever seen. It was six stories tall,
+and nothing but hard edges and bleak outlook. The concrete had had some work done to change its color from the usual wet
+gray, to a sandstone tan. The first two floors had inset windows, single pieces, with some of them illuminated from the
+interior by bleak and cold white light. The door at the front was a single metal slab, with a tiny seem running down the
+center. That was where the niceties ended. While the first two floors could be described as 'hostile office space' the
+next floor was just missing. There was a gap, with nothing there but pillars supporting the next four floors. From their
+angle they could see two of the thick concrete pillars, square, and occupying a fraction of the total building width and
+depth. She assumed there must be a third one towards the rear, and she could only imagine that these were the only means
+of getting in and out. Andrea doubted all three would have access, and she figured that one would be for utilities,
+while the other two would be access. Probably stairs in one, and a lift in the other. Nobody was getting in or out
+without a monumental effort. The floors above that were somehow harsher and colder than the others. Instead of inset
+windows, there were horizontal slits leaking the same cold white light out into the dark evening air.
