@@ -1,4 +1,4 @@
-# The lost Gods
+# RNG
 
 ## Genres
 
@@ -6,13 +6,13 @@
 
 ## Synopsis
 
-A new war is brewing and the youngest survivor of a legendary mercenary group, Arthur “Del” O’Delt, has unintentionally
-landed right in the middle of it. A mysterious new power is rising, one strong enough to threaten the entrenched
-megacorps that rule everything in their shadow. Now, every side is scrambling to seize it, each driven by the same
-hunger, total domination. Alongside the corporations, older threats are waking up, emerging faster than anyone can stop
-them, and now Del, alongside a team of unlikely allies, must confront their differences to survive it all. Corporate
-armies are on the move. Ancient man made horrors are closing in. All of them racing to control the one man who could
-mean the difference between survival and total destruction.
+A new war is brewing and the youngest survivor of a legendary mercenary company, Arthur “Del” O’Delt, has
+unintentionally landed right in the middle of it. A mysterious new power is rising, one strong enough to threaten the
+entrenched megacorps that rule everything in their shadow. Every side is now scrambling to seize it, each driven by the
+same hunger, total domination. Alongside the corporations, older threats are waking up, emerging faster than anyone can
+stop them, and now Del, alongside a team of unlikely allies, must confront their differences to survive it all.
+Corporate armies are on the move. Ancient man made horrors are closing in. All of them racing to control the one man who
+could mean the difference between survival and total destruction.
 
 ## Chapers
 
@@ -44,8 +44,6 @@ _internal thoughts_
 
 [^1]: footnote text
 
-// todo: things I intend to touch up
-
 ### Reference
 
 ```
@@ -58,7 +56,6 @@ _internal thoughts_
 [^1] footnote
 [^1]: footnote text
 
-// todo: things I intend to touch up
 ```
 
 ## License
