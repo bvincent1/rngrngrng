@@ -179,6 +179,42 @@ footsteps.
 
 **Thunk**
 
-She didn't even turn to check, she could not even manage that. She knew what it was though. Their escort was a guard in
-a heavy mechanized suit. She had heard about them from her boss, and how they had been part of a new lineup. She did not
-turn or even acknowledge the guard, she just stopped at the doors, and waited.
+She didn't even turn to check. She already knew what it was. Their escort was a guard in a heavy mechanized suit. She
+had heard about them from her boss, and how they had been part of a new lineup. She did not turn or even acknowledge the
+guard, she just stopped at the doors, and waited. Her skin felt clammy, and she wondered if she would make it up the
+elevator. The thumping paused, and she heard a 'tock' noise followed by a deep, male, and electrically toned voice.
+
+"I'm escorting you to 5th. Remain behind me, and do what I say. If anything happens, you are to evacuate to the lift,
+and await further instructions. Are we clear?"
+
+"Go ahead then." Andrea growled.
+
+She did not bother turning to face him. She just stared at the lift doors silently hoping one of the detainees would
+actually escape and knock her out. At least then she could rest without embarrassing herself. _Maybe the guard has
+something?_ Andrea heard a 'tock' noise and the low hum from the guards suit stopped. In the silence that followed, all
+Andrea could here was her own shallow breathing. Air slowly moving in and out of her mouth. She was fully focused on
+remaining upright, and presentable, right up until she passed out. Mercifully, a quiet beep sounded, and the lift doors
+parted in front of her. To her blissful delight, cool air flowed out, and she felt more relief in that small luxury than
+she had all day. _I'm gonna make it._ Further to her delight, the lift itself was dimly lit giving her respite from the
+harsh lighting of the hall. Unfortunately that's where the graces stopped. The lift itself was entirely utilitarian. It
+was painted in hazard yellow, and was completely open to the air. There was no roof, and only a small waist-high railing
+surrounding the entire platform. She took a half step forwards, before pausing, deciding to let the mechanized guard go
+first. The entry was more than wide enough for them both to fit without moving to the side. She watched as a black
+mechanized suit of plated metal walked past her. There were small lights at the joints, and she saw a large pack on the
+back of the suit. She probably imagined it, but she thought she saw the lift move slightly when he stepped on it. The
+steps were large, and exaggerated, like the guard was walking in water. After he got both feet inside the door, she
+watched as he did an awkward shuffle to turn around. By her count it took him three extra steps than it took a normal
+human. The helmet and faceplate was designed to look like a single piece. Completely mirrored in opaque glass, it
+unsurprisingly showed nothing of the wearer underneath. She waited until the guard finished his little dance, and then
+stepped onto the grated metal floor of the lift. Behind her, she heard Del, his boots making their little clicks. She
+stopped behind the guard and, to her immediate regret, pirouetted in place. The movement sent her head spinning and she
+stumbled slightly. Andrea caught sight of a look on Del's face, but she motioned silence from him.
+
+**Tock**
+
+"All aboard." the guard said, deep canny voice echoing slightly in the large space.
+
+With a low whirring noise, the lift shuddered, then accelerated upwards. The movement made her head spin, and she
+reached a hand to wipe away sweat on her forehead. Again, she caught Del giving her a look. She thought it was judgment
+before, but now she reconsidered that it might have been concern. Andrea dismissed him a second time, ignored his
+concern, and chose to put all of her focus on the air in front of her. _I'm gonna do this. I don't need your help._
