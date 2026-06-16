@@ -78,13 +78,13 @@ been holding. Del had done his part, for what it was worth, and stayed silent th
 opened enough, she walked through and took stock of her surroundings as fast as her eyes would adjust to the bright
 lights.
 
-They were in a long, and brightly lit hallway of white tile floors and soft tan walls. The hall extended the length of
-the building, but was bisected by s security checkpoint that rose from floor to ceiling. The front section was some sort
-of waiting area with benches against the walls. She could see there were doors leading off into either side of the
-building, but they were obscured behind the security checkpoint. The checkpoint was a panel and glass bunker, flanked by
-doors, taking up the entire width of the hall. A guard in an all black uniform comprised of buttoned shirt, slacks, and
-a guard hat sat behind a glass window, looking tired, but confused as to hers and Del's being here. _Good. Keep em
-guessing._ Andrea did not break stride the whole time, and walked straight towards the window, doing her best to
+They were in a long, tall, and brightly lit hallway of white tile floors and soft tan walls. The hall extended the
+length of the building, but was bisected by s security checkpoint that rose from floor to ceiling. The front section was
+some sort of waiting area with benches against the walls. She could see there were doors leading off into either side of
+the building, but they were obscured behind the security checkpoint. The checkpoint was a panel and glass bunker,
+flanked by doors, taking up the entire width of the hall. A guard in an all black uniform comprised of buttoned shirt,
+slacks, and a guard hat sat behind a glass window, looking tired, but confused as to hers and Del's being here. _Good.
+Keep em guessing._ Andrea did not break stride the whole time, and walked straight towards the window, doing her best to
 maintain composure the entirety of the short gap. She stopped just short, and eye'd the man on the other side. To his
 credit he did not wither, but she saw him stiffen slightly.
 
@@ -214,7 +214,58 @@ stumbled slightly. Andrea caught sight of a look on Del's face, but she motioned
 
 "All aboard." the guard said, deep canny voice echoing slightly in the large space.
 
+**Tock**
+
 With a low whirring noise, the lift shuddered, then accelerated upwards. The movement made her head spin, and she
-reached a hand to wipe away sweat on her forehead. Again, she caught Del giving her a look. She thought it was judgment
-before, but now she reconsidered that it might have been concern. Andrea dismissed him a second time, ignored his
-concern, and chose to put all of her focus on the air in front of her. _I'm gonna do this. I don't need your help._
+reached a hand to wipe away sweat on her forehead. Again, she caught Del giving her a look. She had thought it was
+judgment before, but now she reconsidered that it might have been concern. Andrea offhandedly dismissed him a second
+time, and chose to put all of her focus on the air in front of her. _I'm gonna do this. I don't need your help._ She
+stood stock still and watched the low powered lights fall away one after another as the lift rose into the shaft. Andrea
+haphazardly noted the lift was raising via geared wheels underneath them lined up to horizontal groves in the shaft
+wall. _Probably some security reason._ After a minute of standing with the cool breeze, the lift slowed, then shuddered
+to a stop. Andrea braced herself, but it was not enough.
+
+The thick metal doors slid open, and a thick sweaty air flowed over them. Andrea almost toppled right then and there,
+but she managed to stay upright. The smell of unwashed human, and over crowding was almost too much for her. A split
+second later she felt a hand on her elbow, and she sharply pulled away. She thanked her lucky starts that the guard was
+facing away, and had started disembarking, and shot Del a cold scowl that she hopped would dissuade him from ever doing
+that again. Andrea took one hesitant step forwards, followed by another, and soon she was keeping pace with the guard,
+and leaving Del in their wake. His boots clattered on the metal grate behind her and then kept pace a few steps behind
+her.
+
+This floor was laid out quite differently than the lower one, and was more in line with the hostility the outside
+projected. It was tall, but sparsely lit, with the lights ringing around the room, rather than from the ceiling. Even
+rows of thick plastic glass rows, evenly divided into smaller cells were aligned perpendicular to them. Ranging from the
+front all the way to the rear of the room, the cells were smudged and dirty, with bits of garbage and cloth scattered
+inside. The guard did not stop or slow, so Andrea followed closely, suddenly feeling very exposed in an otherwise
+cramped room.
+
+**Tock**
+
+"You lucked out. Your man just missed the latest shipment. Him and these last ones are all that's left." the guard said.
+
+**Tock**
+
+Andrea came to notice that most, if not all the cells were empty. She felt it was almost worse this way. The barren
+room, had clearly once been filled, and with that there would have been a certain ~~air~~ to the place. But empty, it
+was much more ominous. The guard's loud boots echoed between barren rows, cracking loudly on the bare concrete floors.
+Andrea thought she saw smudges on a cell in the shape of letters, but they were moving too quickly for her to read them.
+Certainly no message in this place would be happy or well-meant. Andrea could only imagine what sort of fates awaited
+these people. Rikki had said very little about this place, only that it was meant to hold people while the gov-corp
+decided where to send them. Most were simply abandoned outside the walls, but Rikki had alluded to other fates that were
+much worse.
+
+As they neared the far wall, Andrea saw facilities behind thick doors, and she let out a breath of relief having assumed
+the worst in this place. She was suddenly eternally thankful that she even had this job, however much it cost her. At
+least she had a place in this city. The guard stopped at the last row, and pivoted right. His robotic movements were
+almost comical and Andrea seriously doubted this suit would make it much further in the development process.
+
+**Tock**
+
+"Last cell on the left."
+
+**Tock**
+
+Andrea stopped just next to the guard, and she heard Del line up next to her. She turned her head to make eye contact
+with him, and noticed he was clearly shaken with this place. She waited for him to notice her, and then she nodded him
+forwards. He paused, clearly trying to reason her meaning.
