@@ -268,4 +268,43 @@ almost comical and Andrea seriously doubted this suit would make it much further
 
 Andrea stopped just next to the guard, and she heard Del line up next to her. She turned her head to make eye contact
 with him, and noticed he was clearly shaken with this place. She waited for him to notice her, and then she nodded him
-forwards. He paused, clearly trying to reason her meaning.
+forwards. He paused, clearly trying to reason her meaning. She motioned again, this time using her hand.
+
+Del stepped forwards, hesitantly, but calmly. _He understood that one._
+
+Andrea watched him walk towards the cell at the end. He was calm, and quiet. While she did not ask much of him, she did
+ask that he do his job. She had no idea what sort of state Hector would be in, and she was in state to handle anyone but
+herself.
+
+Andrea wiped a bead of sweat from her forehead, and made a quick check on the guard. He was standing still, but he had
+one arm in front of him and was using the other to tap away at a touch panel built into it. As casually as she could,
+she watched the sequence. It was difficult due to the suit's bulk, but she did her best. _Might come in handy someday._
+
+"Del? Hey guys it's the kid!" said a hoarse voice from a cell on the opposite side.
+
+Andrea's blood ran cold. She felt her sweat freeze in place, and her stomach drop away. She and the guard both turned
+their heads to check what has happening at the other end of the cell row. Del had stopped, dead in his tracks and even
+through the splitting headache, and dizzying sweat Andre could see his jaw had dropped. His mouth hung open, and his
+whole body turned to face the cell. From their angle, neither the guard or Andrea could see into it, but she judged by
+the scuffling that there were multiple persons inside it. A quiet hubbub rose from the end, and Andrea heard low
+mumbling between the occupants. Soon the noises they made got louder and more animated.
+
+"Del! You have to get us out!" One voice yelled.
+
+"Aren't we glad to see you!" Came another elated voice.
+
+"Fucking right kid. Get us outta here!" Another voice.
+
+Andrea could not believe what she was witnessing. Del himself just stood there. Statuesque. He glanced towards Hector's
+supposed cell, and then back towards Andrea and the guard. She turned to see the guard absently finish the sequence, and
+she heard a loud beep from Hector's cell at the end of the row. The noise made her wince a little, and then the guard
+turned towards her. The obscuring faceplate slowly rotated to perfectly frame her in its dark, mirrored surface.
+
+**tock**
+
+"What were your names again?" Came the deep electronic voice.
+
+At that moment, Andrea felt all her power wither away. She could not remember a time when had pushed herself this hard.
+She ached. Her whole body felt like it was turning to jelly. Her head swam in the heat, and the elevator ride seemed so
+long ago. All of it seemed like a whole week of this, when she knew reflexively it had only been a few days. All of
+Andrea's confidence, her composure, her willpower collapsed into herself.
