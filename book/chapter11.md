@@ -108,11 +108,18 @@ someone? That's odd..." He stopped to look at her, clearly expecting her to prov
 
 The guard got up and made for a side panel inside the checkpoint. Andrea turned, and subtly gestured to Del to wait. He
 froze, clearly unsure what she was doing. She followed the direction the guard had gone, and stood in front of the glass
-doors. They slowly opened, and without hesitating she stepped inside. She heard a low buzzing noise and watched as a bar
-of metal, now emitting dim light, slowly lowered itself from the ceiling to the ground. She felt her skin prick, as it
-passed over her midsection, and she had to once again will herself still. _You already know it's fine._ She imagined the
-view on the scanner, showing all her clothing, her mobile, probably even her ID card, but nothing else. It would all
-look like clothing and material. No suspect harsh lines, just blurry edges, and unrecognizably vague shapes.
+doors. They slowly opened, and without hesitating she stepped inside.
+
+"Please repeat your name, position, and id designation number" The guard's voice came through over the tiny speaker
+above the scanner room window.
+
+"Fatima Albany. Data security consultant. 145ADF123-2." She recited flawlessly.
+
+She heard a low buzzing noise and watched as a bar of metal, now emitting dim light, slowly lowered itself from the
+ceiling to the ground. She felt her skin prick, as it passed over her midsection, and she had to once again will herself
+still. _You already know it's fine._ She imagined the view on the scanner, showing all her clothing, her mobile,
+probably even her ID card, but nothing else. It would all look like clothing and material. No suspect harsh lines, just
+blurry edges, and unrecognizably vague shapes.
 
 The door in front of her slowly opened, and she had to force her nervous self to freeze where she was and wait for it to
 open all the way before moving at all. She walked out, not even bothering to glance at the guard for a look of
@@ -120,24 +127,25 @@ confirmation, and started for the double doors at the end of the hall. She was s
 
 "Wait!" The guard raised his shaky voice at her.
 
-She paused, knowing full well what he was about to say. She did not want Del to accompany her. She had no faith in him,
-and the more he was involved the worse this got. Del was a liability, and keeping him here and out of the way was the
-best contribution she could think for him.
+She paused, knowing full well what he was about to say. She did not want Del to accompany her. Andrea had no faith in
+him, and the more he was involved the worse this got. Del was a liability, and keeping him here and out of the way was
+the best contribution she could think for him.
 
 "He stays here." Andrea said, cutting off the guard, while not even bothering to turn to face him.
 
-"He can't stay here." Came the guard's shaky reply. "He has to go with you while it's just me."
+"He can't stay here." Came the guard's shaky reply. "He has to go with you since it's just me out front."
 
 Andrea felt her temper rising, and had to check herself. _Can't cause a scene._ She took a deep breath, and turned. She
 made eye contact with the guard, and then glanced at Del through the thick glass, standing awkwardly on the other side
 of the checkpoint. Andrea did not say anything, she did not gesture, she just stood there and watched them both. This
 was something she had practiced. Waiting. She wanted to draw out this moment as long as possible. Both of these dumb men
-stared at her, waiting for her to make a decision. She met their gazes, and after an impossibly long few seconds, just
-crossed her arms and shifted her weight. Both of them immediately did as they had been ordered, and Andrea felt a surge
-of satisfaction.
+stared at her, waiting for her to make a decision. She met their gazes, and after an impossibly long few seconds, she
+just crossed her arms and shifted her weight. Both of them immediately did as they had been ordered, and Andrea felt a
+surge of paradoxical satisfaction. While on one hand she was absolutely terrified that Del would fail the check, she was
+smug in her manipulative skills.
 
-She waited, smug in her accomplishment. It was only as the scanner beeped, unlike when she had gone through, did a chill
-run down her spine. _Did he try and bring something? Did he try and sneak something through?_
+She waited, alternating between smug, and terrified. It was only as the scanner beeped, unlike when she had gone
+through, did a chill run down her spine. _Did he try and bring something? Did he try and sneak something through?_
 
 "You'll have to leave your gun here." The guard beckoned to Del.
 
@@ -302,9 +310,49 @@ turned towards her. The obscuring faceplate slowly rotated to perfectly frame he
 
 **tock**
 
-"What were your names again?" Came the deep electronic voice.
+"Hey, what were your names again?" Came the deep electronic voice.
 
 At that moment, Andrea felt all her power wither away. She could not remember a time when had pushed herself this hard.
 She ached. Her whole body felt like it was turning to jelly. Her head swam in the heat, and the elevator ride seemed so
 long ago. All of it seemed like a whole week of this, when she knew reflexively it had only been a few days. All of
-Andrea's confidence, her composure, her willpower collapsed into herself.
+Andrea's confidence, her composure, and her willpower all collapsed deep into herself.
+
+Even before the ending 'tock' noise from the guard's speaker, Andrea felt her body react before her conscious could
+interject. She had absentmindedly left her hand tucked under her arm, and now that very same arm snapped out brandishing
+her pistol. She had been standing fairly close to the guard. Close enough to read the tablet strapped into his armored
+greave. Close enough to see the gaps between the armor plates, gaps required to let the wearer move and operate with
+something approaching basic functionality. Close enough to, at a full arms extension, wedge her pistol underneath his
+visor with an upwards tilt and pull the trigger.
+
+She didn't really hear the noise per see. At this point she felt too distant from everything to really react to sudden
+noises. What she did recognize was the snap in the guards helmet as the round sent fractious shards of ceramic and skull
+into the interior of the visor. The whole thing held together quite well, and she was surprised when the body stayed
+upright. She was halfway to worrying that she had not killed the man, when the body slowly toppled backwards. With an
+almost comically loud 'thump', the dead and lifeless body toppled backwards.
+
+Andrea suddenly felt much fainter, and before she knew it she was on her knees, trying to keep from toppling forwards.
+It felt like an eternity, but she eventually heard two sets of footsteps, one jogging, the other cautious, headed her
+way.
+
+"Oh no you don't." Del's voice echoed in her ears.
+
+She felt a strong pair of hands grip her by the shoulders, and try to right her.
+
+"Andrea, focus! We need you awake!" Del firmly, but gently insisted to her.
+
+"I can hear you just fine." Andrea tiredly said.
+
+He was holding her eye level, not painfully, but firmly. He seemed very worried, but also distracted. It was then she
+realized that Hector was slowly walking up to them, and there was yelling coming from the cell down the row.
+
+"Andrea." Del said, shaking her slightly. "We need to unlock the cell. How do we do that?"
+
+She sluggishly turned her head, to look at the toppled corpse. She tried to motion to the mode of light coming from his
+arm panel.
+
+"Controls are on the suit." Andrea muttered.
+
+Del looked over her shoulder to the body, and to her surprise kept supporting her. Were the positions reversed, she
+would have let him go to get at the suit controls. Instead, he, supported her and threw her arm over his shoulder while
+grabbing her by the waist. Together they turned to face the corpse. Hector had already made it to the body, and was
+staring down at it, and them. Andrea was not surprised to see that his outfit had not changed at all.
