@@ -350,9 +350,56 @@ realized that Hector was slowly walking up to them, and there was yelling coming
 She sluggishly turned her head, to look at the toppled corpse. She tried to motion to the mode of light coming from his
 arm panel.
 
-"Controls are on the suit." Andrea muttered.
+"Controls are on the suit." Andrea motioned the dead guard.
 
-Del looked over her shoulder to the body, and to her surprise kept supporting her. Were the positions reversed, she
-would have let him go to get at the suit controls. Instead, he, supported her and threw her arm over his shoulder while
-grabbing her by the waist. Together they turned to face the corpse. Hector had already made it to the body, and was
-staring down at it, and them. Andrea was not surprised to see that his outfit had not changed at all.
+"The longer it takes, the more we'll lose." Hector mumbled.
+
+"Such a way with words." Andrea mumbled back from
+
+Andrea felt Del's grip loosen, and she felt herself being gently rotated. A blurred moment later she was kneeling in
+front of the armor, with Del scrabbling away at it.
+
+"It's no use." She said, starting to muster her reserves. "There'll be a deadman switch in the suit. Probably cut the
+power."
+
+Andrea felt her energy slowly return, and she better adjusted herself in front of the armored suit. She pulled Del off
+and leaned over the panel she had watched earlier. With her returning strength she became dimly aware of yelling coming
+from down the row of cells. She ignored the noises and tried tapping at the screen. Nothing happened.
+
+To her surprise she saw Hector lurking at the edge of their little circle. She heard him muttering and went to continue
+ignoring him, when she saw him kneel above the dead mans head and proceed to touch either side of the suit backing. His
+muttering grew louder, and Andrea suddenly felt the air grow colder. She saw Del had also turned, and they both watched
+as Hector's pace increased. The stench of bodies, and human disappeared, only to be replaced by a faint ozone smell.
+Andrea felt her skin tingle, and she felt the suit jerk on the floor like a fish. It vibrated and twitched, making thuds
+and bangs with each twitch. She and Del both watched, horrified, as electric blue arcs jumped from Hector to the suit,
+causing sparks throughout. Andrea heard a chime from the screen at their knees, and saw the screen blink into life.
+
+"Go now!" Hector yelled.
+
+Andrea did not need a second hint. She tapped at the icons, compensating for the angle by painfully craning her neck to
+the side. The ozone smell permeated the air, but now it was tinged with a burning smell. Andrea saw smokes begin to curl
+out from between the suit's plates, and she saw the arm screen glitch.
+
+"Not so much!" she yelled.
+
+But it was too late. Hector was silent now, but the arcing continued. Sparks danced across the suit, and the arcs now
+emitted from the gaps and contacts in the plating. Andrea felt a faint shock from the screen, and yelped. In a final
+desperate gesture, she slapped the screen on the final icon and was rewarded with a firm jolt to her arm.
+
+A split second later she heard a loud 'thunk' from across the room, and then a series of smaller ticks from all around
+them.
+
+"That was it!" she yelled in elation.
+
+But the light show did not stop. Hector knelt stock still, his face screwed up in a grimace. His eyes were glowing, but
+from deep within. Andrea watched in horror as she saw smoke curl from his fingers. A second later she let a short scream
+as Del leapt across the still twitching suit and tackled Hector free. There was a small pop, and the armored suit
+stopped jerking.
+
+Hector and Del lay in a heap, and Andrea heard footsteps jogging towards them. Rather than check on her co-conspirators,
+she turned to face the newcomers, unsure what to expect, but braced for the worst.
+
+"What the fuck was that?!" One of them exclaimed.
+
+Andrea eyed them all one and down, trying to make sense of it all. Each one was tallish, and pale with dark hair and
+roguish features. None wore glasses, aside from one who had a makeshift eye patch.
