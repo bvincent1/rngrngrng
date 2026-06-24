@@ -288,7 +288,7 @@ Andrea wiped a bead of sweat from her forehead, and made a quick check on the gu
 one arm in front of him and was using the other to tap away at a touch panel built into it. As casually as she could,
 she watched the sequence. It was difficult due to the suit's bulk, but she did her best. _Might come in handy someday._
 
-"Del? Hey guys it's the kid!" said a hoarse voice from a cell on the opposite side.
+"O'Delt? Is that you?" said a hoarse voice from a cell on the opposite side.
 
 Andrea's blood ran cold. She felt her sweat freeze in place, and her stomach drop away. She and the guard both turned
 their heads to check what has happening at the other end of the cell row. Del had stopped, dead in his tracks and even
@@ -297,7 +297,7 @@ whole body turned to face the cell. From their angle, neither the guard or Andre
 the scuffling that there were multiple persons inside it. A quiet hubbub rose from the end, and Andrea heard low
 mumbling between the occupants. Soon the noises they made got louder and more animated.
 
-"Del! You have to get us out!" One voice yelled.
+"O'Delt! You have to get us out!" One voice yelled.
 
 "Aren't we glad to see you!" Came another elated voice.
 
@@ -401,5 +401,67 @@ she turned to face the newcomers, unsure what to expect, but braced for the wors
 
 "What the fuck was that?!" One of them exclaimed.
 
-Andrea eyed them all one and down, trying to make sense of it all. Each one was tallish, and pale with dark hair and
-roguish features. None wore glasses, aside from one who had a makeshift eye patch.
+Andrea eyed them all up and down, trying to make sense of it all. There were four of them. All men. All dressed in
+various black fatigues, and with an assortment of webbing and accessories between them. One sported a thick, graying
+beard with a makeshift eye patch and a receding hairline of gray speckled hair. Two had stubbly beards, though one was
+bald while the other had short cropped hair. The last one, the tallest and biggest, was clean-shaven and had close cut
+hair with a single shock of gray on the side. They were all eyeing the dead guard, then the big one switched to Del.
+
+Behind her, she heard scrambling, and turned to see Del untangling himself from Hector, and making to stand up.
+Eye-patch jogged past her an offered Del a hand.
+
+"O'Delt!" He said, hauling him up.
+
+"Good to see you too Takolov." She heard Del reply.
+
+"O'Delt." The big guy gave a nod to him.
+
+"Glad to see you kid!" The other bearded one said, then walked over to give him a slap on the shoulder.
+
+The last one just nodded, clearly busy with thoughts in his own head.
+
+"Alright!" The tall one shouted in a gruff voice. "Takolov, Sig, get this mess sorted." He gestured to the dead guard.
+"Munrhoe, check the lift. O'Delt." He paused, eyeing Del suspiciously. "Get your people up, and ready. You're in charge
+of them until we get out."
+
+The older one, Takolov, let an objection of a chuff slip his lips, and was stared down by the tall one.
+
+"We missed ya kid." Takolov said, and then left Del standing to go about his task.
+
+Andrea watched as him, and the bald one, Sig, went about dragging away the dead guard. Andrea felt her jaw set with the
+harsh metal on metal screeches coming from them. Del stepped out of their way and went to help Hector to his feet.
+Andrea saw him wave off the help, and slowly, gracefully somehow stood up on his own. She suddenly felt immensely heavy,
+and floor looked more inviting than she had ever thought possible. All she wanted was to collapse and fade into blissful
+unconsciousness. She sagged a bit, before she felt a firm grip around her shoulders keep her from toppling over.
+
+"Get on your feet. We're not staying here." Del said.
+
+His words did not comfort her. She felt hopelessly out of her depth and drained. They were still inside a hostile prison
+purpose built to keep this kind of problem under control. She was confident the alarms would start blaring any minute,
+and they would be swarmed by guards, gassed, and shipped off with all the rest.
+
+"Ryhnn, I got a gap in the lift doors. I'll need help openin it." A far off voice yelled. Andrea felt her mood improve
+slightly. Del hauled her to her feet, but kept his grip on her shoulders.
+
+"See! We're getting out of here!" Del said, emphasizing the last word.
+
+_Clang_
+
+Had she been in better condition, the sound might have made her jump, but instead it only elicited an annoying pang in
+her already throbbing head. She saw Del look down, and the look on his face, combined with the cold feeling in her hand
+told her all she needed to know. She had dropped her gun onto the floor. It had not gone off, and the cold feeling was
+simply her cramped hand regaining some circulation. Inwardly she cursed herself repeatedly, but externally she was stoic
+and focused on staying upright. Del loosed his grip to bend down, and she heard him scrap it off the floor. She watched
+as he examined it, taking precious care to point it away from everyone, and to thoroughly inspect it. The gun was unique
+in its manufacturing in as much as it was almost entirely composite. Every little piece had been painstakingly designed
+and engineered to be almost undetectable in a scanner. Only the most dedicated of algorithm, or maybe lucky scanner
+operator, would be able to detect a hint of it. It fired special carbon fléchette rounds designed to maximize stopping
+power to make of for the changes. She saw Del suppress a smile, and she felt a pang of regret.
+
+"Huh, so that's how you did it?" He said. "Don't worry, I'll give it back."
+
+Andrea hopped he was being sincere as she watched him tuck it into his belt behind his back.
+
+Past them, the prison was a whirlwind of activity. Rhynn had pried loose a piece of metal piping from somewhere, and was
+jogging towards the lift. Tokolov, and Sigs were busy stripping the guard's suit and pockets. Hector had wandered to one
+of the open cells and was looking inside, muttering to himself.
