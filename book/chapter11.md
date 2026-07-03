@@ -440,8 +440,8 @@ His words did not comfort her. She felt hopelessly out of her depth and drained.
 purpose built to keep this kind of problem under control. She was confident the alarms would start blaring any minute,
 and they would be swarmed by guards, gassed, and shipped off with all the rest.
 
-"Ryhnn, I got a gap in the lift doors. I'll need help openin it." A far off voice yelled. Andrea felt her mood improve
-slightly. Del hauled her to her feet, but kept his grip on her shoulders.
+"O'Rhynn! I got a gap in the lift doors. I'll need help open'in it." A far off voice yelled. Andrea felt her mood
+improve slightly. Del hauled her to her feet, but kept his grip on her shoulders.
 
 "See! We're getting out of here!" Del said, emphasizing the last word.
 
@@ -455,13 +455,59 @@ and focused on staying upright. Del loosed his grip to bend down, and she heard 
 as he examined it, taking precious care to point it away from everyone, and to thoroughly inspect it. The gun was unique
 in its manufacturing in as much as it was almost entirely composite. Every little piece had been painstakingly designed
 and engineered to be almost undetectable in a scanner. Only the most dedicated of algorithm, or maybe lucky scanner
-operator, would be able to detect a hint of it. It fired special carbon fléchette rounds designed to maximize stopping
-power to make of for the changes. She saw Del suppress a smile, and she felt a pang of regret.
+operator, would be able to detect a hint of it. It even fired special carbon fléchette rounds designed to maximize
+stopping power to make up for cartridge size. She saw Del suppress a smile, and she felt a pang of regret.
 
-"Huh, so that's how you did it?" He said. "Don't worry, I'll give it back."
+"Huh, so that's how you did that?" He said. "Don't worry, you'll get this back."
 
 Andrea hopped he was being sincere as she watched him tuck it into his belt behind his back.
 
-Past them, the prison was a whirlwind of activity. Rhynn had pried loose a piece of metal piping from somewhere, and was
-jogging towards the lift. Tokolov, and Sigs were busy stripping the guard's suit and pockets. Hector had wandered to one
-of the open cells and was looking inside, muttering to himself.
+Past them, the prison was a whirlwind of activity. O'Rhynn had pried loose a piece of metal piping from somewhere, and
+was jogging towards the lift. Tokolov, and Sigs were busy stripping the guard's suit and pockets. Hector had wandered to
+one of the open cells and was looking inside, muttering to himself.
+
+"Get to the elevator, I'm gonna grab Hector." Del said, then left her standing under her power.
+
+Andrea felt herself lean forwards, but she caught herself and herself upright. She turned towards the lift and started
+doing her best time towards it. She arrived just as they wedged their makeshift pry bar between the cracked doors.
+
+"Stand back miss." The smaller one, Munroe, said.
+
+"Fuck off." She said, accidentally more harshly than she meant it.
+
+She heard O'Rhynn chuckle quietly then, with a grunt, she watched as they strained to separate the doors at the seam in
+the middle. Andrea couldn't fathom what had caused the doors to malfunction, nor could she justify the strange and alien
+powers that Hector seemed to be able to summon at will. _But bye god are they useful._ O'Rhynn grunted and strained with
+effort, while Munroe struggled for finger purchase in the crack that had just started to form. Slowly Andrea watched as
+a gap formed, and the hot air of the holding floor rushed into the cold and darkened elevator shaft. She felt a figure
+brush past her as Del jumped in to help Munroe. He grunted and pulled along with them, clearly putting all his might
+into it. Bit by bit, she watched as more and more of the shaft resolved into view, and immediately realized that the
+shaft was not empty.
+
+The lift was still on their floor. It looked like it had fallen slightly, but she clearly made out the floor and railing
+just bellow the floor level. The gap was now wide enough that she could slip her arm through. She watched and felt an
+odd sense of jealousy as they worked together like a team, despite the apparent time apart. Del instinctively trusted
+them and trusted them to make the correct decisions, and they trusted him. There was no arguing, no shoving, no
+awkwardness. Just combined effort achieving together what would've been impossible alone. Andrea felt a pang of
+loneliness as she considered how little she trusted any of her co-workers or even her boss. _I don't think I even trust
+my family this much._
+
+With the gap wide enough to fit sideways, O'Rhynn wedged the makeshift lever length weighs between the doors, holding
+them apart without any more effort on their part. All three of them had worked up a sweat and Andrea saw them all
+exchange a look. She stiffened, involuntarily assuming that they were making some inside joke about her, but then
+Tokolov jogged up from behind her and interrupted them.
+
+"We've cleaned up, Sig's got the battery pack. Figure we could use it to get the lift moving." Tokolov said.
+
+"Good. Kid, check the shaft." O'Rhynn said gruffly, nodding to the gap.
+
+Del paused for a fraction of a second, eying the much larger O'Rhynn. It only lasted a second, maybe a fraction of one,
+but Andrea felt like a whole roaring argument had been had between these two during that time. She didn't know the
+pecking order in this new team of theirs, but clearly Del had some thoughts that he was not voicing. Del broke away from
+his stare and ducked under the bar, and leapt down into the shaft. Andrea didn't hear any landing, and for a split
+second her heart dropped from her chest at the thought of him plunging to his death down the shaft. As little as she
+cared about him, he was the most familiar and most understandable one here.
+
+"He's fine." Hector muttered off to her side.
+
+Andrea felt embarassed, followed quickly by anger.
