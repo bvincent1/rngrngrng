@@ -572,3 +572,37 @@ but she did her best to ignore it. She scrabbled at the grating and found she co
 Underneath was a yellow panel with thick wires coming out the sides.
 
 "Found it!" she yelled.
+
+"Sigs, help her! I got this." She heard Del yell from behind her.
+
+A grunt and a second later a bearded face popped into the light next to her.
+
+"Help me get this off, quickly!" He said, the air of urgency evident in his tone.
+
+Andrea scrambled to find a clasp or a release around the edges. Sig did likewise on the opposite side of the small
+panel, and they both awkwardly felt along the ridges of their respective sides until his hands met hers in the middle.
+She doubled back, but the man shock his head.
+
+"It's sealed. Ok we do this the hard way! Rip it open!"
+
+Andrea saw him shift his stance from kneeling to a squat, and she fumbled for a second to match it. Her ~~mobile~~ fell
+out of hand, but she left it in favor of using both her hands to grip the edges of this panel.
+
+"Three, two, one, pull!" the man counted off in quick succession, almost too fast for her to follow his intent.
+
+But she managed, and on cue she tensed with all her withered strength. Her back and hands screamed at her, protesting at
+the loudest volume that she was doing permanent damage to herself. She ignored them, knowing full well that she had
+already done permanent damage to herself many times before without their input. She pulled and pulled, and felt the
+metal slowly give way. Above the almost deafening internal screams, she recognized actual screaming as Del yelled
+something out while firing wildly through the door gap.
+
+It was chaos. Between the gun-flashes, her upturned ~~mobile~~ light, the external, and internal screaming, Andrea felt
+on the verge of passing out from the strain and stimulation of it all. She shut her eyes against the severity of it all
+and felt herself go numb. Despite the progress she was making, she felt her muscles weaken, and the dropping feeling she
+associated with loosing consciousness. Not the weightless beauty she had experienced mere minutes earlier, but the hard
+and jagged pull. Her head swam, and she thought she heard a loud bang on the grating next to her. Then another, and
+another, and one final bang. She made out some groans, followed by shuffling, and she suddenly realized that she had
+fallen over and had been replaced by one of Del's people.
+
+She was too far gone to feel embarrassed, and instead she looked up into the gap just above them. In the light, she saw
+Del.
