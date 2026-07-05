@@ -510,4 +510,65 @@ cared about him, he was the most familiar and most understandable one here.
 
 "He's fine." Hector muttered off to her side.
 
-Andrea felt embarassed, followed quickly by anger.
+Andrea felt embarrassment, steeped in rage. _This fucker has no right to call me out like that!_ She was bristling to
+teach him his place. Andrea turned to face the man, determined to put him in place somehow, but found he was facing an
+empty cell and had not been discussing herself. She paused, unsure if she was sure of herself. She searched herself
+emotionally, trying to confirm what she assumed to be professional detachment. _They're just pawns._ She reached deep
+inside her mental vault where she kept those feelings and mentally confirmed that these two had been properly filed
+away. Satisfied, she returned to the task at hand and went to traverse the gap.
+
+"Hold up." O'Rhynn held up a hand.
+
+Andrea paused a heartbeat, debating how to discard this stranger's unfounded concern for her safety. A split second
+later two quick whistles echoed from the shaft. _Of course._ She shook her head at the simplicity. Del had re-used his
+little ex-company's code in their group. _At least now I know better._ Andrea smirked and thought to file that little
+tip away for the future.
+
+"Now you're good." O'Rhynn said.
+
+He nonchalantly waved her through. She paused to check on Hector, and saw he was slowly wandering their way. Not a
+moment later, she heard a low whine as a set of speakers crackled to life. The noise was jagged and disjointed, too weak
+to be a proper alarm, but too distinct to be anything else. The noise left her feeling uneasy and apprehensive, more-so
+than she already was. Clearly Hector's trick had fried more than just the suit.
+
+"Move it Hector!" She yelled at him, before shoving past O'Rhynn and leaping into the cold black of the lift shaft.
+There was a heartbeat of free fall in that moment. The familiar weightlessness feeling of falling, combined with the
+cold darkness that left her feeling at peace. That brief respite was the most positive feeling she had experienced sine
+the start of this breakneck journey. At like all things, it vanished a moment later. She landed hard, and felt the
+physical pangs of regret as she fell to her knees. She felt a firm hand on her back lift up and her to the side of the
+lift. She half stumbled, half limped to the side, ever thankful for the darkness that would conceal her little accident
+to the others.
+
+"I'm good, get off me." She growled at Del. She shook off his help and made it to the railing under her own steam. The
+stinging pain in her knee and ankle fueling her brittle mood. She heard two more steel bangs as others followed suit.
+She watched as Hector, and then one of them followed in quick rhythmic succession. It was too dark for her to accurately
+make out which of them it was, but she did not much care regardless. _We're almost out of here._ Before the next one,
+she heard a yell, and then a loud bang from the elevator doors above them. Her heart raced, and she strained her eyes
+against the dark to see what was happening above them.
+
+She heard several more bangs, and then more distant yelling that answered her lingering question. _Fuck!_ The guards had
+clearly regrouped and were storming the floor from an alternate entrance. _Not yet! I need these fuckers to get out!_
+She raged against the futility of it all. She wanted to scream and yell, but all she felt was hopelessness mixed with
+stinging pain.
+
+"Sig, give me a lift!" she heard Del shout over the commotion. "Andrea, find the control panel and get it open!"
+
+Andrea watched as one of the dark figures crouched, and the other stepped into, and then above them. In the pale light
+spilling between the doors she saw Del hoist himself into a hanging position with one arm, and then return fire with her
+pistol. She was too emotionally drained to care about his efforts, or to argue, and instead chose to do what he had told
+her. The loud bangs and flashes from her gun strobe lit the shaft with a hard orange light. The flashes were harsh,
+blinding, and too infrequent to be of any use. Andrea shielded her eyes and quickly fumbled her ~~mobile~~ out of her
+pocket. A few slow and agonizing seconds later a cold light sprang to life from her hands and she quickly panned around
+the room. Her heart was racing, and she panned too quickly around for her brain to properly process the room. Andrea
+panicked and panned back towards what she thought was a panel, only to find it was nothing. She cursed herself, and
+resumed where she had left off only more slowly and purposefully this time. She made a full rotation around the room,
+finding nothing of value. As she was about to double back, she heard a strained voice.
+
+"Try the floor!" Sig grunted at her.
+
+She did not acknowledge him, and went to stand taller, hefting her light high up to avoid the glare. A second later she
+saw a telltale shape under the grating, and she stumbled towards it. Above her, she could hear loud bangs and grunting,
+but she did her best to ignore it. She scrabbled at the grating and found she could lift a small section of it free.
+Underneath was a yellow panel with thick wires coming out the sides.
+
+"Found it!" she yelled.
