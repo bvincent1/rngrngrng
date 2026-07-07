@@ -596,13 +596,74 @@ already done permanent damage to herself many times before without their input. 
 metal slowly give way. Above the almost deafening internal screams, she recognized actual screaming as Del yelled
 something out while firing wildly through the door gap.
 
-It was chaos. Between the gun-flashes, her upturned ~~mobile~~ light, the external, and internal screaming, Andrea felt
-on the verge of passing out from the strain and stimulation of it all. She shut her eyes against the severity of it all
-and felt herself go numb. Despite the progress she was making, she felt her muscles weaken, and the dropping feeling she
-associated with loosing consciousness. Not the weightless beauty she had experienced mere minutes earlier, but the hard
-and jagged pull. Her head swam, and she thought she heard a loud bang on the grating next to her. Then another, and
-another, and one final bang. She made out some groans, followed by shuffling, and she suddenly realized that she had
-fallen over and had been replaced by one of Del's people.
+It was chaos. Between the gun-flashes, her upturned light, the external, and internal screaming, Andrea felt on the
+verge of passing out. The strain, the lights, the noise, it was overwhelming her. She shut her eyes against the severity
+of it all and willed herself go numb. She felt all the feeling receded from her hands up into her body. The pain, the
+exhaustion, her self awareness, it all faded into the black. She felt herself dropping feeling, a feeling normally she
+associated with unconsciousness. Not the weightless beauty she had experienced mere minutes earlier, but a harsh and
+jagged pull towards the ground. A moment later she realized she was on her back, flopped awkwardly on the ground. She
+was too far gone to feel embarrassed, and instead she looked up into the gap just above them. The In the light, she saw
+Del. She watched consecutive freeze frames of wild action.
 
-She was too far gone to feel embarrassed, and instead she looked up into the gap just above them. In the light, she saw
-Del.
+Del had hoisted himself to a standing position level with the detention floor. He was yelling, but Andrea could not hear
+him but for the flashes of light from her gun. In the chaos she found that she could only hear him with the light. Later
+on, she decided it must be some trick her brain had been playing on her, but in that the moment she was awestruck. Del
+was firing wildly over the heads of the others. She saw one dark shape dive through the gap, followed by a loud crash on
+the grating next to her. Despite the noise, she could not bring herself to turn away. The freeze-frame mad dash was all
+she wanted to see. Again, another shape came barrelling through the gap, narrowly missing Del as he sprayed what must
+have been the last few rounds into the rushing guards. She watched as a round slapped off the inner frame of the door,
+throwing dancing sparks into the shaft. Another bullet punched a hole into the concrete wall behind them, dropping a
+dust cloud into them. Then it was dark. Through the racket of their impossible final stand she thought she made out a
+trio of all to familiar heart stopping clicks. Her gun was empty. Suddenly her hearing returned to normal and she felt
+her head swimming. A loud bang sounded on the grating next to her. Then another. She heard some groans, and then she
+finally put meaning and words to the yelling.
+
+"Fucking pull you bastard!" Sigs was screaming at one of them.
+
+"Did you get the door?" She thought she heard Tokolov ask.
+
+"It's closed." The gruff response of O'Rhynn came.
+
+"It's coming free! One last pull!" grunted Sigs again.
+
+"O'Delt? You OK?" She heard Tokolov ask, a pang of worry in his voice.
+
+Andrea felt her own heart skip a beat on that note. She lifted her head and tried to make out the scene.
+
+"That's it!" Sigs exclaimed breathlessly.
+
+She found she did not care about their progress next to her, and instead tried to roll away from them onto her stomach.
+She quickly propped herself up, and curled back towards the door to try and make out what was wrong. She saw a dark,
+crumpled shape of the grating, with one of them, Tokolov, standing over it.
+
+"Tokolov, you help these two, I got O'Delt." A gruff voice called out.
+
+The man above Del stopped, hesitated, and then quickly trotted towards the two working on the lift controls. Andrea saw
+a pained look in his old, tired eye, and she felt worry bubble up into her chest again. Try as she might, she could not
+help herself anymore. She was spent. Keeping everything locked away was impossible now. She was at the mercy of her own
+emotions. She watched O'Rhynn bend down over the crumpled heap, and she thought she saw movement. There was an exchange
+of words between them that she could not make out, and a moment later she saw Del raise a hand and O'Rhynn hoist him up
+gingerly. As soon as he was on his own two feet, Andre felt the tension in her gut fade away. It returned a moment later
+when she heard a deafening thud come from the doors half a floor above them. She looked up and thought she saw a dent in
+them, but the constant dancing shapes from her light and the hustling activity made it impossible to tell.
+
+"Oh, I know! Get that suit battery!" She head an excited shout from behind her.
+
+With a groan, she pushed off the floor and stood upright, only to immediately forwards at the middle by her screaming
+back muscles. She let out an involuntary groan and did her best to remain standing. Next to her was a hubbub of
+activity. Apparently Sig and Tokolov were the technical experts of the group because they were busing ripping out wires
+one by one. Andrea had seen junkies madly tear into bundles of wires, looking to steal the cabling, but this was
+different. One of them had taken her ~~mobile~~ and had turned the light towards the bundles, while helping direct the
+other with their free hand. Munroe, she found out, was busily prying loose the housing for a battery pack they had
+stolen from the guards mechanical suit. Why they had gone through the effort earlier, Andrea had no idea, but she
+praised them now for their hoarding mentality.
+
+Andrea felt a hand on her shoulder, and she managed to slowly rise to her full height. She expected it to be Del, but it
+was the tall one, O'Rhyyn.
+
+"Don't think I got a chance to introduce myself." He said nonchalantly. "I'm O'Rhynn."
+
+Another loud bang from the door interrupter her. With the light steady now, she definitely saw a bulge in the sturdy
+metal.
+
+"Intros later, get out first." She said, shouldering away his hand.
