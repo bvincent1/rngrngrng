@@ -667,3 +667,173 @@ Another loud bang from the door interrupter her. With the light steady now, she 
 metal.
 
 "Intros later, get out first." She said, shouldering away his hand.
+
+"Fair 'nough. Sigs, what's our status?" O'Rhynn shouted, and Andrea saw he had the pipe, now awkwardly crooked, in his
+other hand.
+
+"Give us a minute. We're gonna release the mag locks on the lift."
+
+"Overshoot." Hector said, looming above them.
+
+To their credit they were too busy to really bother with him, but Andrea felt in any other situation they would have
+shoved Hector away for his borderline unsettling demeanor. Something clicked in her brain. What Hector had said,
+combined with what they had planned clicked into place in her head.
+
+"W-" she started to yell, but her voice was overwhelmed by a deafening screech-bang from above them.
+
+To their credit, neither of the two working on the controls flinched. She saw their single-minded focus, and the look in
+their eyes that they knew full well that everyone's fates rested on their success, or failure. She turned her head and
+saw in the dark, a visor looming over them. She saw their tiny reflections in the dark plasti-glass visor, and could not
+help but feel small and powerless.
+
+**Tock**
+
+"I'm gonna tear you bastards limb from limb!" Came the deep, digitally augmented voice.
+
+Andrea watched in horror as the guard pried what remained of the doors apart like it was sheet lattice. The servos on
+the suits arms whirred and ticked, filling the lift shaft with their tiny reciprocating mechanical noises. Suddenly
+Andrea felt cramped in the otherwise spacious lift shaft, the cornered prey feeling threatening to strangle her already
+weakened state into unconsciousness.
+
+"Fuck off corpo!" someone yelled, and out of the corner of her eye she saw one of the dark figures flip off the guard
+precariously looming above them. Then her stomach rose into her chest.
+
+There was a loud click from bellow them, and Andrea instinctively collapsed onto the floor, desperate to grab onto
+anything as the floor fell away from her for what felt like only a fraction of a second. She turned upwards, incongruous
+that they had escaped with that short of a fall. To her horror, she could still see the suit of armor only a tiny
+distance higher, and she opened her mouth to yell. Her scream was torn from her throat as the entire lift suddenly fell,
+and they all were left perilously holding onto whatever they could. The lift machinery underneath them was screeching at
+a deafening level, and she thought she could smell the all too familiar smell of metallic smoke. All around her the
+chaos was mirrored with all of them desperately clinging onto the spacious grating that had only moment ago felt
+confined and limiting. It seemed they doomed to fall for forever as Andrea tried to brace herself for what she knew
+should have been a short ride. But they kept on falling. Deeper and deeper they fell, so far now that Andrea was
+convinced they had actually died and were actually on their way to hell. The smell of smoke was choking her and
+underneath them, she saw the cherry red glow of dangerously heated metal. Over the wretched screaming metal, she heard
+indistinct yelling and then a bark.
+
+Suddenly the lift roared and they crashed to a halt. Andrea waited. Just breathing in and out. Trying to do her level
+best to tell if anything was broken through only breathing. Her knees were sending stabbing pain shooting up her spine,
+and her cramped hands were foul with dirt and grease. All around her, she heard groans and shuffling as the others
+twitched and breathed deeply.
+
+"Sound off." One of them groaned, O'Rhynn from the gruff tone.
+
+"Sigs"
+
+"Tokolov"
+
+"O'Delt"
+
+"Munroe"
+
+"Andrea" she joined hoarsely, not quite sure why, but willing to at least test out how it felt to talk.
+
+"Hector?" she heard Del ask concernedly.
+
+"We're close now." Came a monotone voice from one of the corners.
+
+Andrea felt relief and annoyance at the same time. Despite what she had witnessed from the man, she was still not quite
+sure what he was and how fragile he might really be.
+
+"Fucking, what's this guys deal?" came a confused, but totally valid, voice from somewhere's in the dark.
+
+Based on the sound, Andrea could tell he was standing and awkwardly shuffling towards her. It was not Del, but one of
+the other ones, who was holding her ~~mobile~~, light still on. He stopped above her and she propped herself into a
+sitting position. Her ~~mobile~~ popped into her view and she took it.
+
+"Thanks Andrea" Tokolov said to her.
+
+She was too stunned by it all to bother replying. The red glow from the lift machinery underneath them illuminated them
+all in a menacing glow, but above them Andrea observed that the lift seemed to stretch on forever now. However far they
+had fallen, at least they had gotten away from the guard. Andrea panned the light around the room, and indeed the rest
+of them were up and inspecting their own injuries. None of them seemed particularly injured, and Andrea wondered how
+long their luck would last. _These guys just keep fucking going._ Before long she panned to a seam in the wall that
+suggested a door. The others noticed her pause, and congregated towards it, muttering to themselves how they would go
+about getting it open. She decided she would rather stay seated and wait, preferring to contribute by holding her light
+up from where she was. Over the din, she heard one of them grumble, and Del begrudgingly wandered over towards her.
+
+"Here." she said, knowing full well what he was about to ask for.
+
+He gave her an awkward smile, and took the proffered light.
+
+"You good?" He asked, pausing.
+
+"Fine." She said, doing her best to mean it.
+
+Del promptly took off, the light bobbing in his hand. From where she was seated the whole crew was standing around the
+seam in the wall, clearly about to divvy up the labor. A moment later they were working open the door and Andrea figured
+she should at least pretend to make herself useful. Unsteady at first, she found she was feeling markedly better.
+Probably all the adrenalin and stress flushed her system out. She dreaded how bad she probably smelled, then
+reconsidered given that these soldiers had probably spent at least several hours in that cramped cell. _Who knows how
+bad Hector is._ She involuntarily at the thought.
+
+To her surprise the doors came apart much easier down here. The men grunted and wedged their makeshift tools into the
+cracks, and with one heave the doors slid open abruptly. The chill that followed would haunt Andrea's dreams for years
+to come. Cold fog drifted out from sliding doors, and pale green lights cast a sickly glow across them all. Unlike last
+time, the lift was slightly bellow these doors, but only barely. This difference cause the fog to roll out and mix with
+the acrid smoke that was lazily rising from bellow them. The cold air lowered past the grating, and she heard the
+glowing cherry ticking increase as the metal cooled much faster now. Everyone had paused at the entrance, stunned by the
+scene. Beyond the fog and the sickly glow, Andrea could make out computer consoles and blinking lights. A low hum of
+machinery slowly made itself known, and for some reason Andrea found it reassuring. Computers she knew, and with that
+low, unenergetic, and familiar hum came a confidence that she desperately needed.
+
+"I'll take point, don't worry" She said, striding forwards with her practiced smooth and effortless gait.
+
+"Hold up." O'Rhynn said.
+
+Andrea paused.
+
+"O'Delt, you're the scout. You take point. Me and Munroe will follow up. Tokolov, keep our guests a comfortable distance
+behind us." O'Rhynn said with an authoritative air.
+
+"Hang on, who put you in charge!" Andrea went to argue, then paused when Del held up a hand.
+
+"He's right, just make sure to keep up." Del said, disappearing in the mists, not even bothering to argue.
+
+Andrea still was not done, but she knew better than to argue while outnumbered. Even with Del, they'd still be one man
+short, and she doubted whether Hector would even bother trying to help them if it came to that.
+
+Not a moment later they all disappeared into the fog that was quickly dissipating into the shaft. Andrea stepped up and
+turned to see Hector staring at a wall.
+
+"Hector, come on!" She said, low on patience for his peculiarities.
+
+He turned and looked at her, as is for the first time, and she saw a flash in his eyes. She was not sure if it was an
+actual light, or a trick of the fog, but she turned away and saw Tokolov idling beside her waiting patiently. He was
+perfectly quiet and polite, but she sensed an unknown motive behind his actions. Hector did as he was told, and without
+looking she heard him fall in behind them.
+
+The room itself was oriented the same as the holding floor, but it was much longer and deceptively dark. Andrea made out
+multiple lines of vertical tubes running parallel to them. There were neatly stacked piles of boxes, and rows on
+monitors at even intervals. The walls, floors, and ceiling were all the same drab concrete, but in this light it looked
+like a darker color than what she had seen upstairs.
+
+"So are you all from the same 'squad'?" She said, trotting off towards the back of the room, the direction the others
+had gone.
+
+"No." Tokolov said curtly, matching her pace. "I'm from 1st squad, O'Rhynn and Munroe are from 3rd, and Sigismund is
+from 4th." Then he paused. "Was, at least. We were. O'Delt was from 6th."
+
+"Huh." Andrea chuckled softly. "So why aren't you in charge? Clearly you're going by numbers."
+
+"Well, so far I don't really wanna be. O'Rhynn might be difficult, but he's gotten us this far. Seen some tough times."
+
+His gruff and wizened voice trailed off. Andrea saw him angle away out of the corner of her eye, and she quietly
+considered ignoring it. The lights overhead were so dimmed as to be nonexistent, and she had mostly been using the
+status lights as guidance. _How does he even see anything with one eye, let alone at all._ She decided to follow, more
+out of curiosity than anything. She knew very little about this group, despite their reputation.
+
+"Wait. So what happened then?" She said, trailing behind him. "What happened to the lost company?"
+
+There was a long pause. She thought maybe he had not heard her, but he turned to face her.
+
+"We got caught. Everything went to hell. I lost most of my friends that day. We all did. Until today, I thought me and
+the guys were all that were left. Then I saw O'Delt and I thought maybe there was hope."
+
+Andrea tried her best, but the poor lighting hid what she could only assume was sorrow on the man's wrinkled face. In
+the dark, he suddenly looked much older than she had previously thought.
+
+"He's not the only one." Hector said, passing them and making for a stack of boxes next to a console.
+
+Tokolov's mouth opened halfway, but before he could speak there was a rapid double whistle from somewhere behind a stack
+of boxes.
