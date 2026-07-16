@@ -819,21 +819,87 @@ from 4th." Then he paused. "Was, at least. We were. O'Delt was from 6th."
 "Well, so far I don't really wanna be. O'Rhynn might be difficult, but he's gotten us this far. Seen some tough times."
 
 His gruff and wizened voice trailed off. Andrea saw him angle away out of the corner of her eye, and she quietly
-considered ignoring it. The lights overhead were so dimmed as to be nonexistent, and she had mostly been using the
+considered ignoring him. The lights overhead were so dimmed as to be nonexistent, and she had mostly been using the
 status lights as guidance. _How does he even see anything with one eye, let alone at all._ She decided to follow, more
 out of curiosity than anything. She knew very little about this group, despite their reputation.
 
 "Wait. So what happened then?" She said, trailing behind him. "What happened to the lost company?"
 
-There was a long pause. She thought maybe he had not heard her, but he turned to face her.
+There was a long pause. She thought maybe he had not heard her, but eventually he turned to face her.
 
 "We got caught. Everything went to hell. I lost most of my friends that day. We all did. Until today, I thought me and
-the guys were all that were left. Then I saw O'Delt and I thought maybe there was hope."
+the guys were all that were left. Then I saw O'Delt and I thought maybe there was still hope."
 
 Andrea tried her best, but the poor lighting hid what she could only assume was sorrow on the man's wrinkled face. In
-the dark, he suddenly looked much older than she had previously thought.
+the dark he suddenly looked much older than she had previously thought.
 
 "He's not the only one." Hector said, passing them and making for a stack of boxes next to a console.
 
-Tokolov's mouth opened halfway, but before he could speak there was a rapid double whistle from somewhere behind a stack
-of boxes.
+Tokolov's mouth opened halfway, but before he could speak there was a whistle from somewhere deeper in the room. Tokolov
+ducked down, and dipped behind the pod. Andrea followed, only a pace or two behind, but when she rounded it, he was
+gone. She froze, unsure, and suddenly concerned that she had been abandoned. From somewhere's just outside her limited
+sight she heard a whisper.
+
+"Come on. This way."
+
+She could only just make out the faintest of movement in the darkness. She assumed it had been Tokolov, but it could
+very well have been any of Del's guys. Andrea turned to check on Hector, but he was also gone. Andrea paused. On one
+hand Hector was their ticket out of this mess, he clearly knew more than any of them, but on the other hand he was
+quickly proving to be more of a tourist than anything. She glanced around one last times, trying to spot any sign of
+movement in the dim twinkling lights. She saw nothing. _He'll be fine._
+
+She steeled herself, and then quietly weaved between the pods and boxes towards the source of the whisper. She had to
+weave further into the mechanical jungle than she would've initially thought, but eventually she came upon a small
+clearing. Squinting against the blurry darkness, she thought she could make out a crouched shape in dark clothing. They
+were quietly rustling though a half opened plastic box. Black, and metal shapes quietly clinked inside and she started
+halfway crossing when she heard a noise that sent an involuntary shiver down her spine.
+
+**Tock**
+
+"We know you're here!" came the artificially deepened voice.
+
+**Tock**
+
+She hesitated, then there was a loud thump from just beyond the largest obstacles. There was another thump, and she
+quickly dove behind the nearest piece of cover. A figure turned the corner and she barely made it behind one of the
+pods. She did not need to see them to know that it was another guard in a powered suit. The loud thumping continued as
+it slowly waddled into the clearing. Andrea thought she could feel the ground shaking with each step. She felt a chill
+creep down her spine, and her blood ran cold. _We're trapped, with no weapons, and they've got a fucking tank._ She
+hugged the pod for cover, and did her best not to disturb any of the controls jutting from a vertical panel along its
+base. Her hearing suddenly heightened, she thought she heard a small gurgle from the pod. Her brain tied itself into
+knots trying to prioritize this new sound and the loud but periodic thumping.
+
+**Gulp gulp**
+
+That time she was confident it had been the tank-pod thing. She was closer to it, closer than she had been the whole
+time, trying to present the smallest version of herself to the armored power suit clomping around just on the other
+side. To her surprise, her lungs were burning as she had instinctively stopped breathing to hide. She slowly released
+her breath, and then it reached out for her. She screamed.
+
+Several things happened at once. A hand pressed itself against the glass, inside the pod, right at her face height. A
+tight whirring noise, echoed off the walls. And finally, the pod exploded into a thousand tiny pieces.
+
+Andrea only managed to scream for a fraction of a second, but that was all it took. The augmented reflexes of the suit,
+combined with the onboard weapons made short work of her cover. Andrea pushed away as fast as she could and the glass
+shattered with a deafening crashing noise. It was quickly followed by the whip-crack-roar of bullets flying towards her
+at automatic weapons speeds. She was too slow, and only managed to duck behind the metal base when she suddenly became
+engulfed in the hail fire, and something else. She felt a heavy and viscous liquid roll onto her back, weighing her down
+suddenly. It engulfed her and clung to her clothing, drenching her in cold and darkness. The fluid was not clear, but a
+dark, deathly palate now that she was covered in the stuff and could better inspect it. Andrea would have screamed if
+not for the already attenuating circumstances. The 'tank' fluid had a chemical odor that she was certain would prove
+permanent, and she spent the next few seconds cursing everything about the last few days. _I'm gonna kill them all
+myself!_
+
+Andrea felt, rather than heard, the torrent of bullets stop, and a moment later she heard a sickening slough. It was the
+unmistakable sound of a body toppling over. To her horror, she felt a cold and wet arm slap onto her back. It rolled off
+her shoulders, and onto the floor, severed neatly at the shoulder. She stared in horror at the severed arm, not because
+it was mangled, but because it was clean. In the dim light she could not make out much, but she saw cold metal at the
+junction between shoulder and body. On the metal were the telltale indents and pockmarks of plugs and wires extending
+into and out of the limb, with broken and torn leads dragged hanging off. The skin was sickly pale, and mottled with
+additional ports, scars, and other telltale marks.
+
+**Tock**
+
+"East junction, I think I've got one of them. Send one of the cleanup."
+
+**Tock**
