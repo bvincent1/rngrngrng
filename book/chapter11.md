@@ -890,16 +890,113 @@ not for the already attenuating circumstances. The 'tank' fluid had a chemical o
 permanent, and she spent the next few seconds cursing everything about the last few days. _I'm gonna kill them all
 myself!_
 
-Andrea felt, rather than heard, the torrent of bullets stop, and a moment later she heard a sickening slough. It was the
-unmistakable sound of a body toppling over. To her horror, she felt a cold and wet arm slap onto her back. It rolled off
-her shoulders, and onto the floor, severed neatly at the shoulder. She stared in horror at the severed arm, not because
-it was mangled, but because it was clean. In the dim light she could not make out much, but she saw cold metal at the
-junction between shoulder and body. On the metal were the telltale indents and pockmarks of plugs and wires extending
-into and out of the limb, with broken and torn leads dragged hanging off. The skin was sickly pale, and mottled with
-additional ports, scars, and other telltale marks.
+Andrea felt, rather than heard, the torrent of bullets stop, and a moment later she heard a sickening slough noise. It
+was the unmistakable sound of a body toppling over. To her horror, she felt a cold and wet arm slap onto her back. It
+rolled off her shoulders, and onto the floor, severed neatly at the shoulder. She stared in horror at the severed arm,
+not because it was mangled, but because it was clean. Cold metal at the junction between shoulder and body, telltale
+surgical scars indents, and metal pockmarks for plugs and wires extending into and out of the limb. Loose wires hung
+from the joint, sparking lightly in the foul fluid that coated her and it. The skin was sickly pale, mottled with scars
+and tissue decay. Andrea could think of no reason why someone would go through the process of preserving a limb this
+way. She held back the urge to vomit, and tensed silently. _I'm dead now. Go away. Please._
 
 **Tock**
 
-"East junction, I think I've got one of them. Send one of the cleanup."
+"Got one of them. East junction. Send cleanup."
 
 **Tock**
+
+Andrea held her breath, out of both preference and survival given the rancid stench that permeated her clothes and the
+ground beneath her. She felt her lungs begin to burn, and her heart begin to beat, but she persisted. She heard a loud
+clomp, crunch. Then another. For a brief moment, she thought the noise was moving in the opposite direction. In her
+fetal position, she could not see anything, and she dared not move for fear of disturbing the delicate silence that
+currently shielded her from further barrage. Her lungs ached, and her heart pounded in her chest, but she persisted. The
+noises were coming from behind her, and she thought she might tilt her head underneath to see behind her.
+
+**Tock**
+
+"Cleanup time"
+
+**Tock**
+
+Andrea's blood ran cold. For what felt like the dozenth time today she felt death a millisecond away. She did not have
+any witty lines, or sarcastic remarks. Just quite fear. Quiet hope that she might be spared a moment longer. Andrea
+waited.
+
+**Brrrrrtttt, pchttt, pchttt**
+
+Andrea heard the noises, acknowledged them, but her brain was too tied up in its own mortality to recognize the sound of
+her saviors. She stayed there cowering in the shadow of a tank and corpse, feeling the cold, wet, and misery drip
+through her clothing into her skin and cling to her. She shut it all out. The noise, the smell, the dark, but to her
+surprise she did not die. Mysteriously, she lived, and nnable to bear the mystery, she turned her head. Through the gaps
+in her soaking bangs she saw it.
+
+Sparks pinged off the guard's helmet, bright flashes in the dim darkness. He stumbled backwards with a crunch of boot
+and metal landing on something less sturdy than the suit. Arms flinched upwards, the involuntary response to an
+otherwise deadly series of shots on an arguably titanic figure. The bullets themselves did no permanent damage, but the
+distraction had done its job. Andrea saw more sparks light up the side of the suit. This time the guard leveled his arm
+and unleashed a wild arc of fire into the darkness. Andrea was pinned to spot, unable to move. More headshots rang off
+the curved mask, and an arm came up to block them. More rounds ping off the sides. Andrea watched as the bullets came in
+from all sides. It was pack mentality at it's finest. Andrea did not know where they had found the guns, but she
+welcomed the burst of superiority that accompanied them. Just behind her, Andrea felt a hint of movement, and she spun
+her head around in a wild arc of viscous fluid, hair, and fear. Deep in the darkness, she saw as a figure came sprinting
+at her. It passed her, effortlessly, darkness upon darkness, but now a familiar shape. Del leapt over the mess she lay
+in, and stepped behind the towering mechatronic figure. In that split second moment, the pestering shots stopped, and
+the guard relented his uncontrolled spray into the unconforming darkness. Del pulled himself up the back with one hand,
+leveraged a riffle in the other into the suit's gap at the neck, and fired. Three point-blank shots rang out, echoing
+loudly from deep inside the machine. Del pushed off, and landed gracefully, followed a split second later by a loud
+clang as the suit toppled forwards. He turned and quickly scuttled towards her, proffering his free hand to help her up.
+
+Andrea was stunned. Despite the smell, the fluid, and the corpses her mouth hung open in disbelieve. Del stood there
+hand outstretched, and rifle in hand.
+
+"Get up. Keep going that way. Tokolov has your gear." Del said, completely monotone and nonchalant.
+
+Something about how he said it seemed completely at odds with their situation. He was unemotional about the whole thing.
+Andrea took his hand and somehow found the strength to stand. At her full height, just short of Del's average build, she
+saw the small ring of chaos that had been centered on her. Broken glass, sickly dark fluid, and a desiccated corpse lay
+scattered around her meager cover. Del pushed her onwards, and dropped a magazine from his rifle. To her surprise he was
+now wearing a black plate carrier with mags stuffed underneath. _Where did he get those?_ She followed the direction he
+had shown, and gingerly stepped through the muck. Just on the other side she glimpsed a better angle of the body. She
+stifled a gasp of horror at the sight of it. She was by no means a lightweight in the world of violence, but this was
+something different.
+
+The body had been dissected at the joints, and then reconnected with cables and wires between them. Andrea could no
+longer identify the gender or origin of it due to how surgically scarred, metallically pin cushioned, and fluid dyed it
+was. She could not picture it as a whole being anymore, and could not begin to imagine why anyone would go to these
+kinds of lengths. Andrea did her best to put the anatomical nightmare behind her, both literally and figuratively,
+moving in the direction that Del had urged her. She quickly built up speed, moving into a light jog, ducking around
+another tank that surely held more body horror than she was prepared for. She made it past a crate, another tank, and a
+small desk before she heard the crack whip of a stray bullet fly over her head. Andrea let out a startled half scream,
+before ducking down and scurrying towards the closest piece of cover. More rounds cracked overhead, and she did her best
+to put solid material between herself and where she thought it was coming from. Not a second later she heard yelling and
+a long burst of gunfire. Before she could steady herself to peak around her cover, a quick whistle from behind her told
+her turn.
+
+She turned just in time to register something come flying at her face. She instinctively lifted her hands up in a guard,
+only to feel the rough but solid clack of a plater carrier bounce off them. It was black, just like Del's, and lay in a
+heap at her feet. A split second later another telltale shape came flying out of the darkness. This time she recognized
+its shape and arc, despite the lighting. She deftly reached out and caught it with both hands. _Finally, something to
+fight with._ The rifle felt reassuring in her grasp, and she bent down to fit her vest on. With a fair degree of effort,
+only partway aided by her current sopping state, she slid into the vest and cinched the belt tight. Now she felt whole.
+More yelling, and more gunfire erupted from nearby and Andrea wondered if she should help or keep going. She felt like
+dumping a magazine's worth of bullets into the mess and taking out her pent-up stress on these dissection lab corporate
+goons. She was about to turn and abide this sentiment, when a double whistle sounded from just aside where the gear had
+flow from. There was a startled yelp, and then a staccato of gunfire down a nearby row of boxes.
+
+"Where the fuck are these guys!" came a scared scream that Andrea did not recognize.
+
+"Ahhhh!" Yelled another, only to be drowned out by his own gunfire.
+
+Andrea brought the gun to her shoulder and pointed it in this new direction, heart pounding with renewed fear, but also
+strength. Her finger feathered the trigger. The gunfire cut abruptly, leaving a beckoning silence that could only mean
+one thing. She lowered her gun, and kept moving. She made her way towards the rear of the room. Twice more she heard
+sporadic bursts of violence, only for them to be cut dramatically short. _Who the fuck are these guys?_ Andrea had known
+of them as a myth. A corporate bogeyman to threaten other corporations with. Nobody she had met had ever actually met
+the lost let alone done business with them. She knew they were good, but down here, in this horror filled basement at
+the bottom of some corporate oubliette they seemed godly. Ghosts. Wolves. Predators of unparalleled proportion. Andrea
+kept her rifle held tight, but pointed low the entire time. She made careful, dedicated steps, pointing in what she
+thought was the rear of the cavernous room.
+
+Slowly the dark revealed a wall, and she thought she could pick out the familiar looking shapes of doors and controls.
+Leaving this place, and her newfound humility behind would be the best thing for her, and so Andrea broke into a light
+jog towards the wall.
