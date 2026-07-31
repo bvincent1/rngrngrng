@@ -990,13 +990,39 @@ flow from. There was a startled yelp, and then a staccato of gunfire down a near
 Andrea brought the gun to her shoulder and pointed it in this new direction, heart pounding with renewed fear, but also
 strength. Her finger feathered the trigger. The gunfire cut abruptly, leaving a beckoning silence that could only mean
 one thing. She lowered her gun, and kept moving. She made her way towards the rear of the room. Twice more she heard
-sporadic bursts of violence, only for them to be cut dramatically short. _Who the fuck are these guys?_ Andrea had known
-of them as a myth. A corporate bogeyman to threaten other corporations with. Nobody she had met had ever actually met
-the lost let alone done business with them. She knew they were good, but down here, in this horror filled basement at
-the bottom of some corporate oubliette they seemed godly. Ghosts. Wolves. Predators of unparalleled proportion. Andrea
-kept her rifle held tight, but pointed low the entire time. She made careful, dedicated steps, pointing in what she
-thought was the rear of the cavernous room.
+sporadic bursts of violence, only for them to be cut dramatically short. _Who the fuck are these guys?_ Andrea had only
+ever known of them as a myth. A corporate bogeyman to threaten other corporations with. Nobody she had met had ever
+actually talked with 'the lost' let alone hired them. She knew they were good, but deep down, in this horror filled
+dungeon at the bottom of some corporate oubliette, they were actually here. Ghosts. Wolves. Predators of unparalleled
+proportion.
 
-Slowly the dark revealed a wall, and she thought she could pick out the familiar looking shapes of doors and controls.
-Leaving this place, and her newfound humility behind would be the best thing for her, and so Andrea broke into a light
-jog towards the wall.
+Andrea kept her rifle held tight, but pointed low the entire time. She made careful, dedicated steps, pointing in what
+she thought was the rear of the cavernous room. Slowly the dimly lit dungeon revealed a wall, and she thought she could
+pick out the familiar shapes of doors and controls. Knowing that leaving this place, and her newfound humility behind
+would be the best thing for her, Andrea broke into a light jog towards the wall. When she made it to the doors, she
+turned to hear a particularly loud thump from far behind her. It was soon followed by light clattering sounds she
+distinctly recognized as explosive debris hitting floor. _Finally breaking out the big guns._ Moments later she
+involuntarily braced as a hauntingly familiar roar echoes up the lanes. Destruction and confetti was thrown everywhere
+and despite it, Andrea could pick out short bursts of gunfire. _That'll be another mech suit._ Andrea made a conscious
+choice to leave the fighting to these men, and focus on something that she was more and more desperately in need of.
+Escape. The fight had long since drained out of her and, after these latest brushes with withdrawal and death, she only
+wanted to run. Andrea tossed the sling of her gun over her head and left it to hang loosely over her shoulder. She went
+about testing the door and found it disappointingly locked and sturdy. She briefly considered using her gun, but
+something about the construction and locks at the corners made her reconsider. Turning her full focus towards the panel,
+she wondered what she might even accomplish. Lifting the cover she saw a touchscreen with several icons and controls for
+opening looks and then doors. Aggressively, she thumbed the icons but was immediately halted with a password pin popup.
+
+"Fuck!" Andrea yelled out.
+
+She almost reached for her gun, more out of desperation than any actual plan. Then she was showered with concrete dust.
+The roar of gunfire had ebbed, and now she was distinctly aware of smaller rifle fire stitching the wall she stood next
+to. It clearly was not aimed at her, but she was well aware of how little luck she must have left after the last few
+days. Andrea shrugged off her gun and leveled it at the dull flashes eliminating from the rows of containers. Muzzle
+leveled, Andrea quickly swapped between what seemed like a dozen different flashes. Her finger felt the trigger, but she
+did not pull it. Each flash could be either her so-called allies or a corporate goon sent to eliminate them. Her heart
+pounded in her chest, and each thump she changed targets, unsure what to do next. More dust fell onto her, more
+crack-whip noises told her they were slowly getting closer. The pounding in her chest and the thumps on the wall told
+her to move, but she found she was unable to follow. Andrea stood out in the open, next to the waiting console, unsure
+what to do next. Out of the corner of her eye she saw movement and she rapidly brought her gun to bear on it. A dark
+figure stumbled out, a vague rifle shape in their hands. Andrea squinted desperately, trying to make out a distinct
+feature she could use to identify them. 
