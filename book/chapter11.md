@@ -1010,7 +1010,8 @@ wanted to run. Andrea tossed the sling of her gun over her head and left it to h
 about testing the door and found it disappointingly locked and sturdy. She briefly considered using her gun, but
 something about the construction and locks at the corners made her reconsider. Turning her full focus towards the panel,
 she wondered what she might even accomplish. Lifting the cover she saw a touchscreen with several icons and controls for
-opening looks and then doors. Aggressively, she thumbed the icons but was immediately halted with a password pin popup.
+opening looks and then doors. Aggressively, she thumbed icons in what she hoped was the correct order, but was
+immediately halted by a password PIN popup.
 
 "Fuck!" Andrea yelled out.
 
@@ -1020,9 +1021,44 @@ to. It clearly was not aimed at her, but she was well aware of how little luck s
 days. Andrea shrugged off her gun and leveled it at the dull flashes eliminating from the rows of containers. Muzzle
 leveled, Andrea quickly swapped between what seemed like a dozen different flashes. Her finger felt the trigger, but she
 did not pull it. Each flash could be either her so-called allies or a corporate goon sent to eliminate them. Her heart
-pounded in her chest, and each thump she changed targets, unsure what to do next. More dust fell onto her, more
+pounded in her chest, and with each thump she changed targets, unsure what to do next. More dust fell onto her, louder
 crack-whip noises told her they were slowly getting closer. The pounding in her chest and the thumps on the wall told
-her to move, but she found she was unable to follow. Andrea stood out in the open, next to the waiting console, unsure
-what to do next. Out of the corner of her eye she saw movement and she rapidly brought her gun to bear on it. A dark
-figure stumbled out, a vague rifle shape in their hands. Andrea squinted desperately, trying to make out a distinct
-feature she could use to identify them. 
+her to move, but she found she was unable to follow the thought. Andrea stood out in the open, next to the waiting
+console, unsure what to do next. Out of the corner of her eye she saw movement, and she rapidly brought her gun to bear
+on it. A dark figure stumbled out, a vague rifle shape in their hands. Andrea squinted desperately, trying to make out a
+distinct feature she could use to identify them. The figure was holding their head with a free hand, and their rifle by
+the grip with the other. They were stumbling, clutching their face in fervent agony. A step behind them Andrea saw a
+figure she recognized, and pulled the trigger.
+
+She was not quite prepared for the kick of the rifle, and her shot went wide. Her target did not fall, and so she
+followed up with what she hopped would be a tight burst of fire. Andrea squeezed, and held, a series of flashes casting
+harsh but bright light into the confounding darkness. After a pause, she waited, praying for the figure to fall. After
+only a half step, the lead figure toppled over, and she let out a breath that she had, for once, been purposefully
+holding. The familiar outline of Hector, with his ragged tarp cloak and dull skin stumbled towards her. His gait was
+erratic, and uncoordinated thought. Andrea felt her heart skip a beat, unsure what to do for a, at least partially,
+immortal prediction engine.
+
+"Are you alright?" she asked.
+
+The figure stumbled towards her, and she gasped. Hector's body had been stitched by gunfire from his left leg up into
+his right should. Small holes and punctures littered his outfit. Andrea could see into them. Underneath the folded tarp,
+and layers of clothing, there was a dull blue light. She could not make out shapes or movement underneath, but the
+lights ebbed and flowed, suggesting something miraculous was happening underneath. Andrea looked up from the grievous,
+but clearly ~~unfailing~~ wounds into Hector's eyes. Just like always they were a dull gray, but Andrea could only
+detect a little of the light that she thought had once filled them. Just like always Hector was always looking through
+them, but now Andrea felt a distinct feeling of distance between him and everyone else.
+
+"Hector, are you alright?" Andrea asked again, unsure what that even meant anymore.
+
+She heard him mumble, but oddly it seemed out of sync with his mouth. More bullets cracked above them, and Andrea
+involuntarily flinched as dust fell and stuck to her still soggy clothes.
+
+"Hector, I need the code for the door!" Andrea resorted to yelling. "I need it now!"
+
+A split second later, a figure burst out from behind a container, and Andrea leveled the gun, only to adjust it
+immediately. A split second later a thick and short figure hustled out from the exact same spot. The first form, turned
+and squeezed off two rounds, and Andrea matched them to knock down the huffing and puffing corporate guard. A second
+later two more dark figures burst from different alleys, each being trailed by their own personal variety of
+well-equipped but poorly trained chasers. Andrea picked and chose as best she could, still standing rooted next to the
+panel. One by one the guards fell and they all felt the noise get louder and louder as the fighting became more and more
+personal. Andrea was firing
