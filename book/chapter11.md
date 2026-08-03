@@ -1060,5 +1060,100 @@ immediately. A split second later a thick and short figure hustled out from the 
 and squeezed off two rounds, and Andrea matched them to knock down the huffing and puffing corporate guard. A second
 later two more dark figures burst from different alleys, each being trailed by their own personal variety of
 well-equipped but poorly trained chasers. Andrea picked and chose as best she could, still standing rooted next to the
-panel. One by one the guards fell and they all felt the noise get louder and louder as the fighting became more and more
-personal. Andrea was firing
+panel. One by one the guards fell, and they all felt the noise get louder and louder as the fighting became more and
+more personal. Andrea was firing in what she hoped was tight and controlled bursts, but she wondered if it was really
+the others' round that were scoring the kills.
+
+"Hector come on!" Andrea yelled again.
+
+Hector stumbled towards her, holding a hand out for support. She did not have a free hand to hold him, and so he fell
+hard against the cold concrete wall. Andrea diverted her gaze for as long as she dared to look him over. _This is bad._
+Hector looked exceedingly faint, despite his already gray complexion. He was clearly struggling to stay upright, but
+Andrea did not see any labor in his breathing or blood soaking through the obvious holes in his chest. He seemed
+distracted, eyes far away from here, looking well beyond the walls of this dungeon and the horrors that it contained.
+Unfortunately she needed him here, instead of wherever he preferred to exist.
+
+They had collapsed from a loose line formation into a small half-circle near the door. Andrea found herself at the start
+of one end with Hector while Sigmund, Tokolov, and Munroe evenly spaced to complete the impromptu shape.
+
+"One, four, I don't care anymore..." Hector mumbled.
+
+"I still care!" Andrea yelled, firing off a burst at a leaning figure at the end of a far off steel container.
+
+"Lady, we need an exit!" Munroe yelled evenly in between automatic weapon bursts.
+
+"I'm trying!" Andrea screamed back, her voice loosing composure.
+
+Out of the corner of her eye, she saw two dark figures burst out from on top a nearby container. Bullets traced the air
+they had occupied a split second earlier, and both landed ~~dextrously~~, spinning around to light up their pursuers
+with twin bursts of fire. A trio of guards spilled out, and then both sprinted to the formation.
+
+"Andrea get Hector on the door. I'll take your place!" Del yelled over the din.
+
+He effortlessly slid into her spot in the line and loosed a loud burst of fire at a pair of dark figures Andrea had not
+even noticed. They had snuck up because she had been forced to divide her attention, and she hated hector for it. He was
+not only causer her to make mistakes, but was going to her and everyone else in their little group killed. _Fuck it._
+
+Andrea dropped her gun into it's sling and grabbed Hector with both hand by the front of his poncho.
+
+"Hector give me the code for this door! Or we're all going to die!"
+
+She did not feel like she needed to add that last part, but it felt good to be emphatic. All around them, quick bursts
+and clicks of firing threatened to drown out her and his conversation. All around them dust and dirt was kicked up in
+tiny explosions, each one a large reminder that they were in fact cornered.
+
+"Five, six, eight, one" Hector mumbled.
+
+Andrea tapped the console with one hand, keeping Hector aloft with the other. He was surprisingly light, but still quite
+limp in her grip.
+
+"Incorrect PIN" the console flashed in bright red letters.
+
+"Try again!" Andrea yelled point-blank into Hector's face.
+
+"One, eight, nine, nine" Hector mumbled again.
+
+Andrea punched in the numbers this time, all the while a loud metallic and gut-wrenching crunch noise from just past
+their cordon told her that she would not get many more tries.
+
+"Incorrect PIN" the screen repeated.
+
+"You fucking-! Hector tell me now!" Andrea was all but crying in rage.
+
+She wrenched him close, and focused all her anger deep into his eyes. It was strange. Andrea knew there was something
+wrong with them, wrong with him, but she had never actually been able to pinpoint it. Face to face, eye to eye, she saw
+it. Hector's pupils were not a pair of black points. Even in the dimly lit darkness of this concrete lab, she could see
+there were actually a collection of an innumerable number of pin-like-points. And they moved. The points swirled,
+illuminated from behind by a soft glow from deep within Hector's iris'. They swirled in random patterns, each following
+some separate current of invisible fluid. Andrea found it to be quite beautiful, and she felt herself getting lost in
+them. Like a moth to the flame, Andrea felt herself become drawn to the infinitesimally small pins and light behind
+them. Her anger forgotten, she slowly loosed her grip on Hector's clothes and felt suddenly lighter.
+
+"Fucking kill them!!" a loud speakerized voice yelled above the near constant cracks, whips, and coughs of combat that
+surrounded her and Hector.
+
+The voice broke her trance, and Andrea recoiled back from Hector.
+
+"Seven, seven, seven, three" Hector said, as evenly as if they weren't all moments from being mowed down in a cacophony
+of belt fed ammunition.
+
+Andrea, now free of Hector, fully faced the screen knowing full well that she would not get another chance. Her fingers
+tapped in a final code, and she waited.
+
+"Correct code. Doors opening." the screen flashed.
+
+Andrea felt the blood rush through her head, and the turned slightly to see mechanical levels quickly and aggressively
+vacate their positions. In a matter of moments the door split down the middle and Andrea had never so glad to see
+darkness.
+
+"Go!" someone yelled from behind her, and Andrea grabbed Hector by the collar and ran for it. Behind her, she heard the
+rest of them file into the dark and suddenly herself in a dark, damp, and dirty concrete tunnel. Despite only two
+directions to go, Andrea felt hesitant to pick their direction. She ducked around the edge, just next to the cusp of the
+heavy metal door. She found what she was looking for, a control panel, exactly opposite the inside of the room. One
+after the other, Del's team flooded the tunnel, until it was only the two of them Del, and O'Rhynn left. She heard
+gunfire blaze away, and a moment later both figures dived headfirst into the trough just bellow them all at the center
+of the tunnel. Andrea quickly punched in the code, and to her unyielding satisfaction, the doors wrenched shut just as a
+barrage of belt fed gunfire stitched up the floor to the metal. Andrea used the last of the light to heft her rifle
+point-blank at the controls and fired three quick rounds into it.
+
+Then they were plunged into darkness.
