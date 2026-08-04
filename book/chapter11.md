@@ -851,7 +851,7 @@ movement in the dim twinkling lights. She saw nothing. _He'll be fine._
 She steeled herself, and then quietly weaved between the pods and boxes towards the source of the whisper. She had to
 weave further into the mechanical jungle than she would've initially thought, but eventually she came upon a small
 clearing. Squinting against the blurry darkness, she thought she could make out a crouched shape in dark clothing. They
-were quietly rustling though a half opened plastic box. Black, and metal shapes quietly clinked inside and she started
+were quietly rustling though a half opened plastic box. Black, and metal shapes quietly clinked inside, and she started
 halfway crossing when she heard a noise that sent an involuntary shiver down her spine.
 
 **Tock**
@@ -861,7 +861,7 @@ halfway crossing when she heard a noise that sent an involuntary shiver down her
 **Tock**
 
 She hesitated, then there was a loud thump from just beyond the largest obstacles. There was another thump, and she
-quickly dove behind the nearest piece of cover. A figure turned the corner and she barely made it behind one of the
+quickly dove behind the nearest piece of cover. A figure turned the corner, and she barely made it behind one of the
 pods. She did not need to see them to know that it was another guard in a powered suit. The loud thumping continued as
 it slowly waddled into the clearing. Andrea thought she could feel the ground shaking with each step. She felt a chill
 creep down her spine, and her blood ran cold. _We're trapped, with no weapons, and they've got a fucking tank._ She
@@ -927,7 +927,7 @@ waited.
 Andrea heard the noises, acknowledged them, but her brain was too tied up in its own mortality to recognize the sound of
 her saviors. She stayed there cowering in the shadow of a tank and corpse, feeling the cold, wet, and misery drip
 through her clothing into her skin and cling to her. She shut it all out. The noise, the smell, the dark, but to her
-surprise she did not die. Mysteriously, she lived, and nnable to bear the mystery, she turned her head. Through the gaps
+surprise she did not die. Mysteriously, she lived, and unable to bear the mystery, she turned her head. Through the gaps
 in her soaking bangs she saw it.
 
 Sparks pinged off the guard's helmet, bright flashes in the dim darkness. He stumbled backwards with a crunch of boot
@@ -1035,7 +1035,7 @@ followed up with what she hopped would be a tight burst of fire. Andrea squeezed
 harsh but bright light into the confounding darkness. After a pause, she waited, praying for the figure to fall. After
 only a half step, the lead figure toppled over, and she let out a breath that she had, for once, been purposefully
 holding. The familiar outline of Hector, with his ragged tarp cloak and dull skin stumbled towards her. His gait was
-erratic, and uncoordinated thought. Andrea felt her heart skip a beat, unsure what to do for a, at least partially,
+erratic, and uncoordinated thought. Andrea felt her heart skip a beat, unsure what to do for an, at least partially,
 immortal prediction engine.
 
 "Are you alright?" she asked.
@@ -1152,8 +1152,10 @@ directions to go, Andrea felt hesitant to pick their direction. She ducked aroun
 heavy metal door. She found what she was looking for, a control panel, exactly opposite the inside of the room. One
 after the other, Del's team flooded the tunnel, until it was only the two of them Del, and O'Rhynn left. She heard
 gunfire blaze away, and a moment later both figures dived headfirst into the trough just bellow them all at the center
-of the tunnel. Andrea quickly punched in the code, and to her unyielding satisfaction, the doors wrenched shut just as a
-barrage of belt fed gunfire stitched up the floor to the metal. Andrea used the last of the light to heft her rifle
-point-blank at the controls and fired three quick rounds into it.
+of the tunnel. Andrea quickly punched in the code, and to her unyielding satisfaction, the doors were only open a sliver
+now just as a barrage of belt fed gunfire stitched up the floor into the metal with loud clangs. Andrea used the last of
+the light to heft her rifle point-blank at the controls and fired three quick rounds into it. With that last exertion
+the doors slid shut, but not before a loud crack whizzed out from between the metal doors, followed by a wet crack, and
+the loud unmistakable thump of a body hitting the floor.
 
 Then they were plunged into darkness.
