@@ -75,4 +75,46 @@ contact with a single outstretched finger. Hector did not see into this one's pa
 futures, or perhaps parallels. He had potential. So Hector let him go.
 
 The man stumbled away, holding his head with one hand, gun with the other, and rounded the shipping container. Hector
-followed him.
+followed him. Hector followed as the man stumbled out from the cramped rows of plastic boxes and metal containers. Only
+two steps behind him, Hector watched as he jerked wildly and collapsed onto the cold concrete floor. Stepping forwards
+Hector looked down to ponder what had happened, despite him knowing full well what it was. His dream-self had seen
+enough violence and murder to recognize the impact of gunfire stitching up a body. But the wake-self was somewhat
+unsure. He glanced down from above the now corpse and looked deep into the dying man's eyes. For some reason this was
+different now. Where previously Hector had felt despair and horror at the deaths of those that came before, he now felt
+satisfaction. The man had indeed served his purpose, just not what Hector had originally thought. Glancing upwards he
+saw Andrea turn away and continue firing bursts into other emerging shapes and figures.
+
+He found he was still sluggish from his earlier death, but he doggedly marched on, clearly seeing the telltale signs
+around the door Andrea was making her final stand. AS he got nearer Hector felt his mind begin to waver. His body seemed
+to respond fine, but his thoughts were slowly leaking out his brain. It was like someone had flipped an hourglass, and
+now Hector's thoughts were slowly siphoning away. Where they went he could not follow, but he found he had to put
+increasingly more and more focus just to remain present.
+
+Hector glanced around, unsure what was causing this disturbance, and to his horror, he found the storm had paused. It
+was not like before where the elements had simply wavered, like a breeze shifts the rains for a minute, but a full on
+break in the clouds. Hector found the break to be the most disconcerting thing he had ever experienced. He was fully
+aware of something watching him. Some god was pulling back the clouds to look down on just him. Hector felt heat
+traveling up his spine, the opposite of what one might expect when facing down a superior being. He craned his neck, and
+dared to look up, not because he knew anything was up there, but out of some learned preference for gods and deities.
+
+To his horror, Hector's instinct had been correct. Above him, embedded in the concrete ceiling a story and a half above
+them as a single eye. It was huge and lidless, and within it contained a swirling vortex of dim lights. Hector
+immediately averted his gaze, his more baseline instincts taking over for his otherwise dreamy and distanced state.
+Hector found he had to resist the fear that coursed through his veins. Despite the rapid degradation of his thoughts,
+his instincts seemed to be surging to forefront of his brain. Threatening to take over and reduce him to a purely
+hind-brain driven man. Panic was surging through his body, mixing with the heat to threaten to overwhelm him in a
+cacophony of stimulation. His old habits taking over, Hector found himself quietly repeating to himself. The words were
+a paradoxical combination of self affirmations and emotional flagellations that he had previously resorted to in his
+former life. _A prayer to myself._ To his complete and utter astonishment, he found comforting in the otherwise abrasive
+ritual. Hector found a rhythm to the words, and ultimately landed on a preference for the balance between positive and
+negative.
+
+_TODO_
+
+Now he felt real comfort.
+
+Over the slowly rising din of battle, and the cosmic turbulence of direct scrutiny, Hector found that he was being
+addressed directly. Andrea had grabbed him and was demanding a code for the door that was between them and escape.
+Hector tried to quiet his prayer and bring his renewed surge of self to focus on finding the answer. In the swirling
+maelstrom, he witnessed countless attempts, and countless failures. He found he could not help but list one of them out
+loud. To his dismay, Andrea tried it and cursed at either him, or their worsening predicament.
