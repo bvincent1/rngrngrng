@@ -28,6 +28,8 @@ could mean the difference between survival and total destruction.
 9. [it's not enough](./book/chapter9.md)
 10. [empty handed](./book/chapter10.md)
 11. [guns blazing](./book/chapter11.md)
+12. [final thoughts](./book/chapter12.md)
+13. [temple bells](./book/chapter13.md)
 
 ## Formatting
 
