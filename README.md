@@ -30,6 +30,7 @@ could mean the difference between survival and total destruction.
 11. [guns blazing](./book/chapter11.md)
 12. [final thoughts](./book/chapter12.md)
 13. [temple bells](./book/chapter13.md)
+14. [differing opinions](./book/chapter14.md)
 
 ## Formatting
 
