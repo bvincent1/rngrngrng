@@ -21,10 +21,10 @@ upheaved steel track or piles of broken concrete. But together, they kept joggin
 He was almost completely out of breath when they came upon a bend with faint light falling just beyond. O'Rhonn signaled
 them all to halt, and Del gingerly set the dead weight down. Andrea watched him closely, clearly worried that Hector was
 still unconscious. Del knelt down next to him out of exhaustion, and struggled to summon any willpower. He rolled Hector
-over onto his back. Del did his best to inspect him for blood, but he did not see any obvious wounds. The only injury
-Del could find was a strange crack in Hector's forehead. He abandoned his search to focus on himself. His shaky hands
-fumbled with the rifle strapped to his chest, and he desperately tried to will them into functioning properly. A firm
-hand clasped his shoulder, and Del looked up to see Tokolov with a comforting look on his face.
+over onto his back. The only injury Del could find was a strange crack in Hector's forehead. _No obvious bleeding. Gotta
+sort myself out first._ He abandoned Hector to focus on himself. His shaky hands fumbled with the rifle strapped to his
+chest, and he desperately tried to will them into functioning properly. A firm hand clasped his shoulder, and Del looked
+up to see Tokolov with a comforting look on his face.
 
 Del had not had much of a chance to express his feelings before, having been expressly wrapped up in the storm of events
 that followed, but he felt a sorrow well up deep inside him. He had worked hard to try and bury this sorrow, but having
@@ -223,7 +223,8 @@ time. Or if he had, it had been minor. Andrea's words shook him. Even more so, s
 "And you're just ok with that? That he's immortal?" Del asked.
 
 "Well I mean..." she trailed off. "What am I supposed to do about it? Alphason is clearly on the same stuff, or whatever
-it is. Look at what he's done, and then look at Hector here. There both changing. It's not up to us."
+it is. Look at what he's done, and then look at Hector here. There both changing." Andrea paused for effect. "It's not
+up to us."
 
 "What makes you think it's both of them?"
 
@@ -233,3 +234,107 @@ them.
 Del stood there, giving her his best look of complete doubt, then took a moment to process whether she was being
 philosophical or not. She redoubled her gesture, insistingly towards the tunnel walls, the concrete. He walked towards
 the wall, unsure what he was supposed to be looking for.
+
+"I don't see any..." Del's voice trailed off. He saw it.
+
+It was subtle. The faintest marks on the wall. The concrete had swirls in it. Light, and barely noticeable, but there
+were subtle disturbances in the texture. If not for Andrea's words, he would have thought they were just an effect for
+visual flair. But they were everywhere. He reached out and traced a line across the now obvious swirls. _No rhyme or
+reason._ The effect was almost hypnotic. Del found he could not follow any one line, but felt himself drawn to idly
+trace them endlessly.
+
+**FWEET. FWEET.**
+
+The noise broke his trance, and he turned to see Sigmund waving them forwards. Del shook his head, and trotted after
+him. Hector had wandered in the right direction, but Del grabbed him by the shoulder out of concern and dragged him
+along. Andrea brought up the rear.
+
+After rounding the corner, they found that the dim light came from a station of sorts. The platform was illuminated in
+hazard yellow, and stood above the tracks high enough that Del knew he'd have to help the others. He carefully, but
+~~forcefully~~ directed Hector onto the landing, then turned to Andrea. She gave him a disapproving look, and even made
+to start hoisting herself up on her own steam, but stopped when she realized she'd have to use her injured side. Del
+looked knowingly at her, and knelt with his hands cupped in a makeshift foothold for her. She sighed and stepped up,
+with his help. Rather than wait for him, she walked past to where the others had assembled next to some pried open
+boxes.
+
+Del felt a momentary flash of anger and eyed up the lip, when he saw Tokolov walking over. The old man leaned down and
+offered a hand.
+
+"I gotcha kid." Tokolov said, his tone full of genuine camaraderie.
+
+"Thanks." Del grunted, pulling himself up at the same time.
+
+Del watched as Tokolov nodded, then made back towards the group. There was a thought in his heart, and Del felt now was
+the best time to express it.
+
+"Hey wait." Del said hesitantly.
+
+Tokolov paused mid-step, and slowly turned to face him.
+
+"I know you mean well, but... stop calling me 'kid'" Del said, his voice somewhat shaky. "I know it's been a while, and
+don't get me wrong I'm glad you made it, but..." Del trailed off. "Things are different. We're not the lost anymore."
+
+Tokolov stared him down, his single eye pinning Del to the spot. After a moment, he nodded. "I understand O'Delt. Don't
+worry about me. I'm just old is all. I just miss the old days." Tokolov paused. "...and for what it's worth, I never
+meant it as an insult. Only a fact... at least it used to be." He trailed off, clearly saddened by the thought.
+
+There was a heavy moment of silence between them as they both reminisced their shared loss.
+
+"C'mon. Let's see what the plan is." Tokolov jerked his head towards the others.
+
+The rest had gathered around a low box lit sharply by an overhead spot-light. The glare made it hard to see past their
+makeshift perimeter, but Del figured they must have cleared it before he had arrived. They all sat on adjacent boxes and
+even a trunk of old supplies.
+
+"New plan then?" Munroe asked.
+
+"Same as the old plan." O'Rhonn responded curtly.
+
+"How'd they even get you guys?" Del asked curiously.
+
+"We got scooped up when-" Tokolov started, but was interupted by O'Rhonn.
+
+"We were doing job for a local boss, and things didn't go as planned." O'Rhonn said harshly. O'Rhonn was eyeing Del and
+his companions harshly. He was clearly unwilling to spill everything in front of strangers.
+
+"Ok, but listen. We need your help. Alphason is alive. He's who we've been tracking. He led us to you!" Del sputtered
+out, deciding to forgo whatever tact might be gained by playing it cool. "I dunno what's going on exactly, but he needs
+our help!" Del continued. "He had a head start, but we're catching up."
+
+Andrea used the stunned hush to attack Del. "Del you fucking asshole! You gonna drag along every fucking warm body into
+this little rescue mission of yours!" She turned to face them all individually. "I don't even know them! I don't even
+know you! Fucking hell, I don't even want to know Rikki! And this Alphason doesn't need our help. He's our target! We're
+supposed to be bringing him in! Or did you forget that?"
+
+There was a hush in the group. Del could see Andrea eyeing him coldly, furious with him.
+
+"Alphason's alive?!" Tokolov repeated in disbelief.
+
+Del tried to study each of their faces in turn. He mostly observed a combination of stunned silence, confusion, and
+general ~~unsure~~ in all but one of them. O'Rhonn's face was cold with determination.
+
+"It doesn't mean anything." O'Rhonn spoke coldly, his head turned downwards. "This changes nothing." He repeated.
+
+Everyone looked at him now, unsure where he was going with this.
+
+"We're not going after him. If he's been here all this time, and this is the first we've heard of him, then that was by
+design." O'Rhonn said. "Just cause he's gone and gotten in shit with the corps, doesn't mean it's our job to rescue
+him."
+
+Del could barely believe what he was hearing. Everyone was stunned by the words. O'Rhonn lifted his head to look Del
+deep in the eyes.
+
+"We're not the lost anymore. We're just this team." O'Rhonn gestured around him, avoiding Andrea and Hector. "Looks like
+you've got one of your own anyways."
+
+"No, fuck off!" Del yelled back. "You can't be serious. Turning your back on everyone? You can't blame him. I've been
+here months and didn't even know anyone else made it. Hell there could be more. More survivors."
+
+"Great! More of your sorry friends!" Andrea cut in. "Fuck Del. Quit dragging in more people. It's our job, or at least
+mine. They don't want in, so let em."
+
+Andrea stood up and moved outside the spotlight, only looking back to see if Del was going to follow her. He ignored
+her.
+
+"No, fuck you! You only wanna run things, and think Alphason would demote you or take your place if we brought him back
+into the fold." Del pointed accusingly at O'Rhonn.
