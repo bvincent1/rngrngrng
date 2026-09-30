@@ -333,8 +333,64 @@ here months and didn't even know anyone else made it. Hell there could be more. 
 "Great! More of your sorry friends!" Andrea cut in. "Fuck Del. Quit dragging in more people. It's our job, or at least
 mine. They don't want in, so let em."
 
-Andrea stood up and moved outside the spotlight, only looking back to see if Del was going to follow her. He ignored
-her.
+Andrea stood up and moved outside the spotlight, looking back expectantly at Del. He ignored her.
 
 "No, fuck you! You only wanna run things, and think Alphason would demote you or take your place if we brought him back
 into the fold." Del pointed accusingly at O'Rhonn.
+
+"What do think he was even doing here? How'd he even get into the city?" O'Rhonn stood, gesturing around them. "Hell, we
+barely made it! I've been looking out for this team the whole time. He just fucked off for his own benefit." O'Rhonn
+paused, eyeing Dell suspiciously. "What do you think even happened at Gant-Pittsburg?"
+
+It was Dell's turn to pause. O'Rhonn's words were raising questions he had not thought to ask. He racked his brain for
+answers, trying desperately to remember that long and terrible night so many moons ago. Only his nightmares came to
+mind, but he knew those couldn't be trusted. _Not the recent ones for sure._ He looked around, trying to gage support
+from the others, but they all had the same solemn look.
+
+"Yeah? I thought so. Well let me tell you 'Del'." O'Rhonn spoke, his voice one of poison and authority. "We were
+abandoned. He sent Betchek's squad, and your squad in to die! Along with us. I saw it. We all did." O'Rhonn gestured to
+Tokolov, Munroe, and Sigmund. They kept silent, their faces stony. "It was blood and fire. I saw Lechii take it. Hell
+they even got DeKapp. Hauled him away! It was a trap! We were sold out! And in the chaos Alphason vanished. He left."
+
+Del felt himself hollow out with each word from O'Rhonn. He had stepped closer with each phrase, and stood above him,
+looking down at him, ferocity burning in his eyes.
+
+"What about your squad?" O'Rhonn asked, turning to face the others. "Did any of them make it? Or just you."
+
+Del felt a fire burst through his chest. A searing hot lance, pushed deeper with each word. He let it spill over.
+
+In one swift move Del left to his feet, and took a swiping kick to O'Rhonn's knee. The expressions on everyone's face
+must have given him away, because O'Rhonn stepped into it, blunting the force and instead threw a punch at Del's face.
+Del was caught off guard, his rage blinding him, but he managed to twist into the blow, causing it to glance off his
+cheek. From there it was a wrestling match. O'Rhonn was bigger and stronger than him, but Del managed to land several
+punches to his sides in quick succession. Fighting like this, within arms reach, wearing full gear was awkward at best,
+embarrassing most of the time. Del had been taught that in fights like this, knives and guns were the only way to make
+up for the protection that their bulletproof plates afforded. Headshots worked well too, but that was tougher to hit.
+Del and O'Rhonn traded blows, each one taking jabs to sides and legs. For a second Del thought O'Rhonn was about to get
+the upper hand, when he felt strong hands grab him by the straps, and suddenly they were both unceremoniously hauled
+apart.
+
+"Enough you two." Tokolov's steady and even voice rang out.
+
+"Break it up." Munroe said in his usual gruff tone.
+
+Del fought to get his breathing under control, determined not to show weakness. O'Rhonn shook Munroe and Sigmund off,
+holding his hands up in mock surrender. There was a sly smile at one corner of his mouth. _Fuck this guy._
+
+"You know what?" Del said hoarsely, his breathing still not quite even. "I fought tooth and nail to get you out. So did
+the rest of my squad. They all died for it. It's just me left. Unlike you I know they died fighting, I didn't just
+assume they saw their chance and left. You all pretend like you're the originals. Like you know the pain better than me.
+But I was there too. I remember what happened, and I remember why we fought. I remember what brought us together, and
+what kept us going! And no I dunno why it all went down the way it did, but just maybe." Del paused, breathing hard, but
+also letting his brain catch up with his mouth. An idea formed. "Maybe we should know." A strange and quizzical look
+crossed their faces. "If Alphason betrayed us, or if he needs our help, it doesn't matter. He owes us one way or the
+other."
+
+Del sat down heavily, unsure if his words had the intended effect. Around him the others each returned to their places,
+clearly contemplating what Del had just proposed. _They all want to know the truth too._ O'Rhonn stepped back, and sat
+across from him, clearly contemplating how he stood, and how everyone else might stand. O'Rhonn had the hard job,
+needing to balance his own needs and plans, against the needs of the rest. Del felt more confident.
+
+"Listen, we've got Hector to lead us to him." Del gestured towards hector, who had been quietly standing at the edge
+looking up the entire time. "And Andrea and Rikki are in as well. We've already made it this far without your help, but
+with it, we'll have the power to punch right through."
